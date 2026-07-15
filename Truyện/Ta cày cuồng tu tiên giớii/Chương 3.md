@@ -1,0 +1,63 @@
+Tần Thù quan sát mọi người xung quanh, những người thành công lên đến đỉnh có khoảng bảy tám mươi người. Tiếp theo đây, có người sẽ tiến vào nội môn làm thân truyền đệ t.ử của các trưởng lão, có người lại giống như nàng, tiến vào ngoại môn. Bất luận đi đâu, cũng đều coi như đã gia nhập Huyền Thiên Môn.  
+  
+Chúc mừng Huyền Thiên Môn lại có thêm bảy tám mươi tên làm công mới!  
+  
+"Phàm là người vượt qua được Vấn Tâm Lộ của Huyền Thiên Môn ta, đều là hạng người tâm tính kiên định. Hôm nay các ngươi vào Huyền Thiên Môn, cũng chỉ mới bước những bước đầu tiên trên con đường tu tiên. Trong ba ngày tới, các ngươi tự mình chọn lựa ngọn núi, liền có thể bắt đầu tu luyện..."  
+  
+Tần Thù khoanh tay, nhìn đám thiếu niên mắt sáng ngời ngời bên cạnh, chỉ cảm thấy bản thân với tâm hồn già dặn thực sự không hề hòa hợp với nơi này.  
+  
+Nên gia nhập ngọn núi nào, thực ra nàng đã sớm nghĩ kỹ, Đan tông chắc chắn là nơi tốt nhất.  
+  
+Trong nguyên tác, nguyên chủ chính là gia nhập Đan tông nên mới gặp phải vị đại sư huynh một lòng hướng về Tần Miên kia.  
+
+Nhưng Tần Thù cũng không thể vì muốn tránh né những chuyện có lẽ sẽ xảy ra sau này mà chọn một con đường không phù hợp với mình.  
+  
+Nàng có Hỏa Mộc Thổ tam linh căn, không đi luyện đan thì còn có thể đi đâu?  
+  
+Trong lúc các đệ t.ử khác còn đang do dự, Tần Thù đã sớm đeo cái túi nhỏ của mình chạy tới Đan tông báo danh.  
+  
+Lúc này tại điểm báo danh của Đan tông vẫn chưa có một ai, trái lại còn để Tần Thù tranh được vị trí đầu tiên.  
+  
+Đệ t.ử phụ trách đăng ký vừa ngáp một cái, mở mắt ra đã thấy trước mặt xuất hiện thêm một người.  
+  
+"Ồ? Đến nhanh vậy sao?" Hắn thong thả hỏi.  
+  
+Tần Thù hì hì cười, đôi mày dài nhướn lên, lộ ra hàm răng trắng nõn: "Chào sư huynh, muội nghĩ đến sớm một chút để có thể chọn được chỗ ở tốt."  
+  
+Ôn Trì nhướng mày, lại hỏi theo lệ: "Tên gì? Bao nhiêu tuổi? Linh căn trị bao nhiêu?"  
+  
+"Tần Thù, mười tuổi, Hỏa Mộc Thổ tam linh căn, căn trị bảy mươi mốt, năm mươi sáu, bốn mươi tám."  
+  
+Ôn Trì cầm b.út ghi chép, cũng không ngẩng đầu lên mà hỏi: "Tại sao lại chọn Đan tông của ta?"  
+  
+Tần Thù nghiêm túc trả lời: "Nghe nói đan sư rất giàu."  
+  
+Khóe miệng Ôn Trì giật giật, tay khựng lại, trên tờ giấy đăng ký tức thì rơi xuống một vệt mực.  
+  
+Hắn như vô tình phất tay một cái, vệt mực kia liền biến mất không thấy đâu, lúc này hắn mới nâng mí mắt lên nhìn Tần Thù.  
+  
+Lông mày kiếm mắt sáng, lãng t.ử như vầng trăng sáng, rực rỡ như muôn vàn vì sao.  
+  
+Chỉ trong thoáng chốc, Tần Thù đã hồi thần lại, trong lòng cảm thán, quả thực là một dung mạo xuất chúng! Vị sư huynh này nếu sinh ra ở thời hiện đại, e rằng lại là một siêu sao.  
+  
+Phản ứng này của nàng khiến thần sắc Ôn Trì dịu đi vài phần. Hắn đã bảo cách của sư tôn không dùng được mà, ai lại nhìn mặt để chọn môn phái chứ?!  
+  
+Hà tất gì phải vậy? Đan tông bọn họ tuy không cạnh tranh lại Kiếm tông, nhưng mỗi khóa người đến cũng không ít, đâu cần phải phí tâm tư này?  
+  
+Thấy ánh mắt Tần Thù trong trẻo, hắn cũng đ.á.n.h giá nàng cao hơn một chút, cười nhạt một tiếng: "Ngươi cũng thật thà đấy."  
+  
+Hắn tùy tay ném một cái túi trữ vật qua: "Đây là đồ môn phái cấp cho đệ t.ử mới nhập môn, ngươi vào đi, dưới chân núi những căn phòng nào ngươi nhìn thấy đều có thể chọn, đến sớm đúng là có cái lợi này."  
+  
+Những căn phòng đã có người ở thì cấm chế sớm đã mở ra, đám tiểu đệ t.ử mới đến chưa có tu vi này sẽ không nhìn thấy được.  
+  
+Tần Thù đón lấy túi trữ vật, chắp tay hỏi thêm: "Đa tạ sư huynh, không biết sư huynh xưng hô thế nào?"  
+  
+"Ôn Trì."  
+  
+Tần Thù ngẩn ra, Ôn Trì là nhị sư huynh của Đan tông, trong nguyên tác người này vừa đẹp trai, tu vi lại cao, chỉ là không ưa bất kỳ ai.  
+  
+Đang nói chuyện thì lại có thêm vài đệ t.ử đi tới.  
+  
+Tần Thù thấy thế, lo lắng lát nữa có người tranh chỗ ở với mình, liền vội vàng chân bôi dầu chuồn mất.
+
+[[Chương 2]] [[Chương 4]]

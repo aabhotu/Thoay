@@ -1,0 +1,59 @@
+# Nhặt được một con rắn
+
+Chỗ ở của tân đệ t.ử đều nằm ở dưới chân núi, họ cũng chỉ có thể nhìn thấy bấy nhiêu, càng lên cao thì cả Đan tông đều bao phủ trong làn sương khói mờ ảo, không nhìn rõ được gì.  
+  
+Tần Thù quan sát sơ qua một lượt, liền nhanh ch.óng chọn một căn phòng có vườn ươm trước cửa để ở lại. Căn phòng này khá hẻo lánh, đi về phía tây thêm chút nữa là một đầm nước lạnh, xem ra vô cùng thanh tĩnh.  
+  
+Khoảnh khắc nàng bước vào cửa phòng, cấm chế của toàn bộ căn nhà liền được kích hoạt, ngôi nhà nhỏ nàng chọn cũng dần biến mất trong mắt mọi người.  
+  
+Các đệ t.ử khác thấy vậy cũng hiểu ra, xem ra một căn phòng chỉ có thể ở một người, tốc độ dưới chân mọi người lại càng nhanh hơn.  
+  
+Tần Thù đã chọn xong phòng, thong thả ngồi xuống ghế, mở túi càn khôn trên tay ra, dốc ngược xuống bàn.  
+  
+"Lạch cạch lạch cạch——"  
+  
+Rất nhiều thứ rơi ra, có trang phục của đệ t.ử ngoại môn, một cuốn "Nhập Môn Tu Tri", lệnh bài thân phận, một miếng ngọc giản, cộng thêm một lọ đan d.ư.ợ.c.  
+  
+Tần Thù trước tiên đưa tay sờ vào bộ "đồng phục" màu trắng ánh trăng này, cảm giác mềm mượt mát rượi, so với đồng phục trường học đời sau thì thoải mái hơn quá nhiều.  
+  
+Nàng lại cầm cuốn "Nhập Môn Tu Tri" lên lật xem sơ qua, bên trên dạy những tân đệ t.ử như bọn họ cách sử dụng lệnh bài thân phận và miếng ngọc giản kia, chỉ là lọ đan d.ư.ợ.c kia thì không thấy nhắc tới.  
+  
+Nàng cầm lệnh bài thân phận quẹt một cái sau cánh cửa, ánh sáng trắng dần bao bọc lấy cả căn nhà nhỏ.  
+  
+Đến lúc này, căn phòng này mới thực sự thuộc về nàng, bất kỳ ai dưới cấp bậc Nguyên Anh đều không thể dùng thần thức nhìn trộm.  
+  
+Cảm giác an toàn trong lòng Tần Thù tăng vọt, nàng lại theo lời trong "Nhập Môn Tu Tri", áp miếng ngọc giản lên trán, từ từ nhắm mắt lại.  
+  
+Miếng ngọc giản trắng muốt tỏa ra ánh sáng dịu nhẹ như lòng trắng trứng, thông tin trong ngọc giản cũng dần hiện lên trong não bộ Tần Thù, đại khái nói về việc hai ngàn năm trước, Huyền Thiên tiên tôn đã khai tông lập phái tại nơi này, lại trải qua sự nỗ lực của vô số đệ t.ử trong hai ngàn năm qua, Huyền Thiên Môn mới có địa vị như ngày hôm nay trong giới tu tiên...  
+  
+Cuối cùng còn đính kèm một đoạn pháp quyết dẫn khí nhập thể, đồng thời báo cho bọn họ biết, chỉ khi dẫn khí nhập thể thành công mới có thể đến Truyền Công Đường của tông môn để lĩnh nhận một môn công pháp.  
+  
+Tân đệ t.ử trong năm đầu tiên mỗi tháng có thể lĩnh mười viên linh thạch hạ phẩm, một lọ Bổ Linh đan, sau một năm sẽ không còn phúc lợi này nữa.  
+  
+Ngoài ra, đệ t.ử nhập môn trên một năm mỗi tháng bắt buộc phải nhận một nhiệm vụ tông môn, có thể nợ trong sáu năm. Nếu không muốn làm nhiệm vụ, cũng có thể dùng điểm tích lũy để thuê người khác làm thay...  
+  
+Nàng mở mắt ra, tiêu hóa những quy tắc linh tinh này, tầm mắt mới lại rơi vào lọ đan d.ư.ợ.c trên bàn.  
+  
+Bình sứ toàn thân màu xanh lục, sờ vào ấm áp, nhìn qua đã biết không phải vật phàm.  
+  
+Huyền Thiên Môn cũng khá hào phóng đấy chứ, vừa nhập môn đã cho một lọ đan d.ư.ợ.c lớn thế này?  
+  
+Nàng cầm cái bình xem hồi lâu, lại rút nút bình ra, một luồng hương thơm thanh khiết sảng khoái tràn ra từ bình sứ, nàng lo lắng d.ư.ợ.c tính bị thất thoát nên vội vàng đậy nút bình lại.  
+  
+Chỉ là nàng rốt cuộc vẫn chưa hiểu rõ, loại đan d.ư.ợ.c này rốt cuộc có tác dụng gì.  
+  
+Thôi bỏ đi, đợi một thời gian nữa chắc nàng sẽ biết thôi.  
+  
+Tần Thù thu dọn đồ đạc xong xuôi, không lập tức bắt đầu tu luyện. Hôm nay nàng vừa trải qua xuyên không lại trải qua trọng sinh, còn leo núi cả ngày trời, thân tâm mệt mỏi, nàng ít nhất phải tắm rửa một cái, lấp đầy cái bụng rồi mới tính tiếp được.  
+  
+Nàng cầm chậu gỗ trên giá, đi ra đầm nước lạnh phía sau múc ít nước về, lau rửa cẩn thận một phen, thay bộ quần áo sạch sẽ vào, y phục màu trắng ánh trăng thực sự rất hợp với thẩm mỹ của nàng. Nàng lại tháo những món trang sức tóc rườm rà ban đầu của nguyên chủ ra, tùy ý b.úi một kiểu tóc củ tỏi.  
+  
+Sau khi sửa soạn bản thân gọn gàng, nàng mới ra khỏi cửa.  
+  
+Thông thạo địa hình là một chuyện, nàng còn phải tìm cách lấp đầy cái bụng nữa.  
+  
+Đám tiểu đệ t.ử cùng nhập tông môn với nàng giống như bốc hơi khỏi nhân gian vậy, một người cũng không thấy. Nàng chỉ đành theo đường cũ quay lại trước cổng Đan tông, tìm thấy Ôn Trì vừa đăng ký xong đang chuẩn bị rời đi.  
+  
+"Sư huynh!"
+
+[[Chương 3]]  [[Chương 5]]

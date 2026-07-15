@@ -72,3 +72,5 @@ Tần Thù thầm lấy làm lạ, những lời nói gây nản lòng đằng k
 Đệ t.ử ngoại môn thì đã sao? Làm việc thì đã sao? Có nỗ lực mới có thu hoạch, kiếm được chút linh thạch cũng tốt mà! Tám năm sau cô em gái cùng cha khác mẹ sẽ xuất hiện, trong tám năm này nàng nhất định phải nỗ lực nâng cao tu vi, như vậy khi rời khỏi Huyền Thiên Môn mới có thể sống sót!  
   
 Môn phái không nuôi kẻ nhàn hạ, những tân đệ t.ử như bọn họ chỉ có năm đầu tiên nhập môn là mỗi tháng được nhận một ít đan d.ư.ợ.c cơ bản và linh thạch mà không cần làm gì. Về sau, từ công pháp tu luyện cho đến ăn mặc ở đi lại bình thường đều phải tự mình gánh vác. Xem ra, trong lúc tu luyện nàng còn phải tích cóp thêm nhiều linh thạch mới được, đợi đến khi Tần Miên xuất hiện, nàng sẽ thu dọn hành lý chuẩn bị chạy trốn.
+
+[[Chương 2]]
