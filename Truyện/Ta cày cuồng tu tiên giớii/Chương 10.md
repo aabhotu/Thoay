@@ -1,0 +1,135 @@
+# Truyền công điện
+
+Tần Thù vui vẻ nhận lấy “món quà đầu tiên” kể từ khi nhập tông môn. Muốn đáp lễ, nhưng nhìn lại túi trữ vật trống rỗng, nàng chỉ có thể ngượng ngùng cười nói: “Duệ Minh sư huynh, sư muội vừa mới nhập môn, trong tay cũng chẳng có vật gì ra hồn. Đợi sau này sư muội học được luyện đan, đan d.ư.ợ.c sư huynh cần cho tu luyện, cứ để sư muội lo liệu!”  
+  
+Bàn về vẽ bánh thì nàng xưa nay chưa từng thua ai.  
+  
+Nếu một ngày nào đó nàng thật sự trở thành luyện đan đại sư, mấy viên đan d.ư.ợ.c dĩ nhiên chẳng đáng gì. Còn nếu nàng sống không nổi qua tám năm kia, vậy cũng không coi là trái với đạo tâm.  
+  
+Duệ Minh cáo biệt nàng. Một tiếng hạc minh vang lên, hắn lập tức hóa về nguyên hình, chỉ trong chớp mắt đã biến mất khỏi chỗ cũ.  
+  
+Duệ Minh bay vòng quanh Mộng Đà Phong mấy chục lượt, đến khi Phúc Thành trưởng lão không nhìn nổi nữa mới gọi hắn xuống.  
+  
+“Sáng sớm tinh mơ, phấn khởi gì thế?” Phúc Thành ngồi xếp bằng trong động phủ, nhìn con tiên hạc ngốc nghếch vừa bước vào mà hỏi.  
+
+Duệ Minh hóa thành hình người, trên đỉnh đầu còn dựng một cọng lông hạc ngố ngố. Hắn phấn khởi tiến lên hai bước, giọng nói cao hơn thường ngày hẳn hai phần:  
+  
+“Sư phụ! Có người gọi con là sư huynh! Nàng còn nói sau này học được luyện đan, đan d.ư.ợ.c con dùng để tu luyện nàng bao hết!”  
+  
+Phúc Thành liếc nhìn đồ đệ ngốc của mình. Nếu không phải năm đó ông nhặt được hắn, e rằng con hạc này đã bị người ta moi t.i.m hạc rồi còn quay lại khen đối phương là người tốt.  
+  
+Tuy vậy, Phúc Thành lại có chút tò mò, rốt cuộc là kẻ nào dám đến Đan Tông lừa gạt con hạc ngốc do ông nuôi lớn.  
+  
+Ông nhướng mày, nhìn Duệ Minh hỏi: “Ồ? Là ai vậy?”  
+  
+“Nàng tên là Tần Thù, xem cốt linh chắc chỉ mười tuổi. Sáng nay con gặp nàng trên đường lên núi, nàng hỏi con Truyền Công Điện đi thế nào. Nàng gọi con là sư huynh, còn cảm thấy con rất lợi hại. Con thấy nàng hợp mắt, nên tặng nàng một cọng hạc vũ.”  
+  
+Duệ Minh tâm tư đơn thuần, không giấu giếm điều gì, đem toàn bộ chuyện buổi sáng kể lại.  
+  
+Phúc Thành trưởng lão đang vuốt râu thì động tác bỗng khựng lại, nheo mắt suy nghĩ hồi lâu rồi nói:  
+  
+“Lão phu nhớ ra rồi. Mấy hôm trước chưởng môn có nói, gần đây sẽ thu nhận một nhóm đệ t.ử mới. Nếu là tiểu nha đầu mới nhập môn, chưa từng thấy việc đời, gọi ngươi một tiếng sư huynh cũng hợp lý.”  
+  
+Duệ Minh gật đầu thật thà: “Hôm qua trước sơn môn đo linh căn, Tiểu Lục bọn họ cũng đến xem, náo nhiệt lắm.”  
+  
+Phúc Thành trưởng lão đang gật đầu thì chợt dừng lại, nhìn Duệ Minh bằng ánh mắt khó tin: “Hôm qua?”  
+  
+“Vâng, chính là hôm qua, mọi người đều biết cả.”  
+  
+Ngụ ý: chỉ có sư phụ là không biết.  
+  
+“Nếu sư phụ không tin, cứ gọi Ôn Trì sư huynh đến hỏi.”  
+  
+Phúc Thành xua tay: “Tiểu nha đầu này, hôm qua mới nhập tông, hôm nay đã đi Truyền Công Điện… chẳng lẽ chỉ trong một đêm đã dẫn khí nhập thể?”  
+  
+Nếu thật là thiên tài như vậy, chẳng phải phải nhanh ch.óng thu vào môn hạ sao? Chậm một bước là bị người khác cướp mất!  
+  
+Duệ Minh lại gãi đầu, nhỏ giọng nói: “Sư phụ, có khi nàng đã dẫn khí nhập thể trước khi đến rồi? Khi sư phụ nhặt được con, con đã là Luyện Khí tầng ba mà…”  
+  
+Nói đến đây, hắn còn ưỡn n.g.ự.c lên đầy tự hào.  
+  
+Phúc Thành nghĩ lại, quả thực cũng có đạo lý. Có lẽ là con cháu thế gia, trước khi nhập tông đã tu luyện sẵn, thế là ông cũng không để tâm nữa.  
+  
+Nếu Tần Thù biết chỉ vài câu của Duệ Minh đã khiến nàng đ.á.n.h mất cơ hội trở thành nội môn đệ t.ử, e rằng phải nhổ sạch cọng lông ngốc trên đầu hắn mới hả giận.  
+  
+Nhưng lúc này Tần Thù hoàn toàn không biết những chuyện ấy.  
+  
+Nàng đi theo con đường Duệ Minh chỉ dẫn, phía trước dần hiện ra một hành lang có mái che. Theo hành lang đi đến cuối, một đại điện bằng gỗ hiện ra trước mắt, khí thế còn hùng vĩ hơn cả ba đại điện T.ử Cấm Thành đời sau.  
+  
+Cuối chín bậc thềm bạch ngọc là hai cột xà sơn đen, trên xà nhà chạm khắc tinh xảo, mây lành lượn quanh.  
+  
+Tần Thù nhìn chằm chằm vào đám tường vân màu tím kia, cảm giác như chúng đang sống, đang chậm rãi chuyển động.  
+  
+Nàng thấy được từ thuở thiên địa sơ khai, một đoàn t.ử khí sinh ra giữa hồng m.ô.n.g, hấp thu tinh hoa nhật nguyệt mà lớn dần, tiếp đó là viễn cổ đại chiến bùng nổ…  
+  
+Đầu Tần Thù đột nhiên đau nhói từng hồi, nàng vội vàng thu lại tâm thần.  
+  
+Dù vậy, tim nàng vẫn còn đập thình thịch. Vừa rồi trong khoảnh khắc đó, nàng cảm giác đầu mình suýt nữa thì nổ tung.  
+  
+Theo kinh nghiệm đọc tiểu thuyết nhiều năm, nàng có thể tự giải thích: nàng còn quá yếu, những thứ cao thâm như vậy vượt quá khả năng tiếp nhận, thân thể tự động kích hoạt cơ chế bảo hộ.  
+  
+Ánh mắt nàng theo bản năng lại muốn nhìn lên bức họa trên xà nhà, nhưng nghĩ đến cơn đau vừa rồi, nàng lập tức thu tầm mắt, ngoan ngoãn bước lên bậc bạch ngọc.  
+  
+Cửa Truyền Công Điện đóng c.h.ặ.t. Nàng không biết bên trong có người hay không, cũng không dám tùy tiện xông vào.  
+  
+Nàng đứng trước cửa, cung kính hành lễ, cất cao giọng: “Đệ t.ử ngoại môn Đan Tông Tần Thù, đã dẫn khí nhập thể, đặc biệt đến xin học pháp quyết.”  
+  
+Trước điện vắng lặng không một tiếng động, thế nào cũng thấy quái dị.  
+  
+Tần Thù hơi nghi hoặc. Truyền Công Điện vốn là nơi đệ t.ử học thuật pháp, dù không đông đúc thì cũng không thể đóng kín cửa, đến người trông coi cũng không có.  
+  
+Chẳng lẽ… nàng đến quá sớm, người ta còn chưa mở cửa?  
+  
+Trong lúc Tần Thù còn đang nghi hoặc, Truyền Công Điện cũng đang “nghi hoặc” nàng.  
+  
+Một đệ t.ử vừa dẫn khí nhập thể, vì sao có thể đến nơi này?  
+  
+Vừa rồi nàng rõ ràng đã bị nhiếp tâm thần, vậy mà lại có thể tự mình thoát ra. Đứa trẻ này sau này ắt không phải vật trong ao.  
+  
+Ngay lúc Tần Thù do dự có nên quay về, đợi muộn hơn hãy đến, thì cánh cửa trước mặt bỗng nhiên mở ra không một dấu hiệu báo trước.  
+  
+Nàng khẽ sững người, nhìn vào bên trong. Mọi thứ như bị phủ một lớp sa mỏng, mờ ảo khó thấy rõ.  
+  
+Trong khoảnh khắc, nàng không biết có nên bước vào hay không.  
+  
+Nhưng 《Nhập Môn Chỉ Nam》 đã viết rõ: đệ t.ử mới đều phải đến Truyền Công Điện học thuật pháp. Nếu nàng không vào, vậy còn biết đi đâu học?  
+  
+Gần như ngay lập tức, Tần Thù đã đưa ra quyết định.  
+  
+Nàng bước chân vững vàng tiến vào Truyền Công Điện.  
+  
+Khi xuyên qua tầng kết giới màu xích kim, nàng còn nghĩ: tu tiên vốn là nghịch thiên mà đi. Nếu nhút nhát, còn tu cái gì?  
+  
+Huống chi Truyền Công Điện có quái lạ đến đâu thì cũng vẫn nằm trong Huyền Thiên Môn. Huyền Thiên Môn sao có thể để thứ gây hại cho đệ t.ử tồn tại trong tông môn?  
+  
+Có lẽ… đây chính là phong cách của Huyền Thiên Môn?  
+  
+Một chân bước qua kết giới, cánh cửa Truyền Công Điện lập tức khép lại. Bên ngoài lại khôi phục vẻ tĩnh mịch thường ngày.  
+  
+Nhưng bên trong Truyền Công Điện, hoàn toàn khác hẳn.  
+  
+Chính điện treo một bức họa, bạch y phiêu dật, trường phát như mực, bên hông đeo trường kiếm, anh khí bức người.  
+  
+Tần Thù không nhận ra người trong tranh, nhưng đã được treo ở đây, ắt hẳn là nhân vật lớn. Bái một bái cũng chẳng sai.  
+  
+Nàng cúi đầu dập đầu, cảnh tượng trước mắt lập tức thay đổi.  
+  
+Chỉ hai chữ mới đủ hình dung: kim bích huy hoàng.  
+  
+Trần nhà, vách tường, mặt đất, thậm chí cả bàn ghế, lư hương trong điện, toàn bộ đều là màu xích kim.  
+  
+Trong chớp mắt, Tần Thù suýt không mở nổi mắt.  
+  
+Nàng nheo mắt, xuyên qua kẽ tay thích ứng dần, mới có thể nhìn quanh một vòng, thấy trên bàn đặt một quyển sách.  
+  
+Đó là thứ duy nhất trong phòng không phải màu xích kim.  
+  
+Nàng chỉnh lại tư thế, cầm sách lên lật xem.  
+  
+Trang bìa mở ra, bốn chữ vàng rực đập vào mắt:《Truyền Công Chỉ Nam》  
+  
+Tần Thù bật cười.  
+  
+Chật vật cả buổi sáng, cuối cùng cũng không đến nhầm chỗ.
+
+[[Chương 9]]  [[Chương 11]]

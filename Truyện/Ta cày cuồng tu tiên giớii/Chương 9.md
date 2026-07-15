@@ -1,0 +1,71 @@
+Tần Thù vô cùng vui vẻ, ngồi xổm xuống quan sát hồi lâu, cũng không biết thứ mọc lên rốt cuộc sẽ là gì.  
+  
+Là hoa sao? Ai mà chẳng mong trước cửa căn nhà gỗ của mình nở đầy hoa tươi chứ?  
+  
+Hôm nay là ngày đầu tiên bọn họ chính thức nhập môn. Theo lời trong Chỉ dẫn nhập môn sau khi dẫn khí nhập thể, bọn họ có thể đến Truyền Công Đường để học những pháp thuật điều khiển cơ bản.  
+  
+Theo tình huống thông thường, đệ t.ử nhanh nhất cũng phải mất ba ngày mới có thể dẫn khí nhập thể; tư chất kém hơn, có khi còn phải dùng đến hơn một tháng.  
+  
+Những ngoại môn đệ t.ử như bọn họ vốn dĩ đều là những người không được coi trọng. Không ai ngờ rằng, trong đám ngoại môn đệ t.ử này lại xuất hiện một kẻ “khác thường” như vậy.  
+  
+Bản thân Tần Thù cũng không hề biết, việc nàng chỉ dùng một đêm đã dẫn khí nhập thể sẽ gây nên chấn động lớn đến mức nào.  
+  
+Nàng men theo bậc đá đi lên, vừa đi vừa ngó nghiêng, cuối cùng cũng gặp được một tiểu đồng đang quét sân.  
+  
+“Xin hỏi sư huynh, Truyền Công Đường đi thế nào ạ?”  
+  
+Duệ Minh là tiên hạc do Phúc Thành trưởng lão nuôi dưỡng. Nó từng được Phúc Thành trưởng lão ban cho hóa hình đan, tu vi không cao, ngày thường chỉ phụ trách quét lá rụng trong Đan Tông.  
+  
+Nghe thấy tiểu cô nương có vóc dáng xấp xỉ mình gọi một tiếng “sư huynh”, Duệ Minh ôm chổi, ưỡn n.g.ự.c lên, cố gắng bày ra dáng vẻ của một sư huynh:  
+  
+“Muội là đệ t.ử mới tới sao?”  
+  
+Tần Thù gật đầu, nhìn tiểu đạo đồng ngây ngô trước mặt, lễ phép đáp:  
+  
+“Đúng vậy, hôm qua muội mới nhập môn, muốn đến Truyền Công Đường, mong sư huynh chỉ đường.”  
+  
+“Nếu đã gọi ta một tiếng sư huynh, vậy sư huynh đưa muội đi một đoạn nhé.”  
+  
+Nói xong, hắn bấm pháp quyết, liền biến trở lại nguyên hình tiên hạc.  
+  
+Dù Tần Thù đã sớm chuẩn bị tâm lý từ khi bước vào tiên môn, nhưng đến khi tận mắt chứng kiến, nàng vẫn không nhịn được mà há hốc miệng.  
+  
+Cái này… đúng là đại biến người sống rồi!  
+  
+Một đứa trẻ cao chừng một mét hai ba bỗng chốc biến thành một con tiên hạc cao gần hai mét, nàng còn phải ngẩng đầu lên nhìn, sao có thể không chấn động cho được?  
+  
+Bộ dạng ấy rơi vào mắt Duệ Minh lại thành ra ngưỡng mộ. Hắn lập tức càng thêm đắc ý, ngẩng cao chiếc cổ thon dài, thúc giục:  
+  
+“Mau lên lưng ta đi, ta đưa muội lên.”  
+  
+Trong lòng Tần Thù kích động dữ dội, nhưng vẫn cúi đầu ngượng ngùng xoa tay:  
+  
+“Chuyện này… có bất tiện không ạ?”  
+  
+Duệ Minh tâm tư đơn giản, chỉ nói: “Không sao, sư huynh đưa sư muội đi một đoạn thôi mà.”  
+  
+Lúc này Tần Thù mới ngẩng đầu lên, đôi mắt đen láy sáng rực như sao: “Sư huynh! Vậy muội không khách khí nữa!”  
+  
+Nàng tay chân cùng dùng, leo lên lưng tiên hạc đang nằm sấp. Lông hạc trên lưng vô cùng mềm mại, nàng nắm c.h.ặ.t hai chiếc lông, ngồi vững thân mình.  
+  
+Duệ Minh đứng thẳng hai chân dài, dang cánh bay lên, lập tức vọt vào tầng mây. Biết Tần Thù là đệ t.ử mới, chưa có linh khí hộ thể, hắn còn chu đáo dùng linh lực bao bọc nàng lại.  
+  
+Lúc này Tần Thù có được trải nghiệm “3D” hoàn hảo hơn, lại nhớ tới Ôn Trì hôm qua đã hất nàng xuống hàn đàm, liền âm thầm ghi thêm cho hắn một b.út.  
+  
+Duệ Minh vừa bay vừa nói: “Truyền Công Đường ở sườn núi, nếu không có ta đưa, muội phải đi bộ mất một canh giờ đấy!”  
+  
+Như để khoe khoang, hắn cố ý bay càng lúc càng cao, chở Tần Thù lượn một vòng trong gió, rồi mới chậm rãi hạ xuống đất, hóa thành hình người.  
+  
+Tần Thù nhìn Duệ Minh trước mặt lại biến thành tiểu đạo đồng, ánh mắt hưng phấn gần như hóa thành thực thể.  
+  
+Ngược lại, Duệ Minh bị nàng nhìn đến có chút ngượng ngùng. Hắn khẽ ho một tiếng, mặt đỏ lên, chỉ vào cây tùng đón khách bên cạnh, nói: “Chính là chỗ này. Lần sau muội cứ men theo bậc thang kia đi lên, thấy cây tùng đón khách này là tới.”  
+  
+Tần Thù ngoan ngoãn gật đầu. Duệ Minh lại chỉ về hướng bắc: “Muội đi về phía đó là sẽ thấy Truyền Công Đường. Sư huynh còn việc, không đi cùng muội nữa.”  
+  
+Tần Thù chắp tay hành lễ với hắn: “Đa tạ sư huynh đã đưa muội đi. Muội tên là Tần Thù, xin hỏi sư huynh danh huý là gì?”  
+  
+“Ta tên là Duệ Minh!”  
+  
+Nói xong, hắn nghĩ ngợi một chút rồi lấy ra một chiếc lông vũ, đưa cho Tần Thù: “Muội giữ lấy chiếc hạc vũ này. Lần sau nếu muốn tìm ta chơi, chỉ cần niệm quyết tên ta ba lần, ta nghe được sẽ tới tìm muội.”
+
+[[Chương 8]]  [[Chương 10]]

@@ -1,0 +1,62 @@
+# Tiên hạc hóa hình
+Dù là vậy, sau một đêm trôi qua, trong đan điền của Tần Thù vẫn ngưng tụ được một đoàn t.ử khí mờ ảo. Khi ý thức của nàng thăm dò vào đan điền, còn có thể cảm nhận được sự thân thiết mà luồng t.ử khí ấy mang lại.  
+  
+Vậy hẳn là nàng cũng đã xem như dẫn khí nhập thể rồi chứ?  
+  
+Lúc này Tần Thù hoàn toàn không biết rằng, dựa theo mức độ cô đọng của linh khí trong đan điền, nàng đã chạm tới cảnh giới luyện khí tầng một.  
+  
+Tốc độ tu luyện như vậy, đặt trong tu tiên giới, bất kể là ai cũng phải thốt lên một câu: thiên tài.  
+  
+Tần Thù mở mắt ra, chậm rãi thở ra một ngụm trọc khí thật dài.  
+  
+Lại ngẩng đầu nhìn ra ngoài cửa sổ, nơi chân trời đã hiện lên một vệt trắng nhạt như bụng cá. Cùng lúc đó, còn xuất hiện một dải t.ử khí mỏng như lụa, trông có vài phần tương tự với t.ử khí trong đan điền của nàng.  
+  
+Nàng thử hấp thu dải t.ử khí ấy, nhưng không những không thành công, ngược lại còn làm thất thoát mất một chút linh khí “đáng thương” trong đan điền.  
+  
+Tần Thù nhận ra điều này, vội vàng thu công. Vừa đau lòng nội thị linh khí trong đan điền, vừa tức giận nhảy xuống giường, hướng về phía đám mây tím nơi chân trời giơ thẳng một ngón giữa.  
+  
+Nàng cảm thấy, dù là linh khí trong đan điền của mình hay là t.ử khí trên bầu trời kia, hai thứ này hẳn là cùng một bản chất, chỉ là hiện tại nàng chưa đủ năng lực mà thôi.  
+  
+Đợi sau này tu luyện đại thành, nàng nhất định sẽ luyện hóa cho bằng được luồng t.ử khí ấy!  
+  
+Nàng đứng dậy vươn vai duỗi gân cốt, hoàn toàn không cảm thấy khó chịu vì một đêm chưa ngủ, trái lại còn thấy tinh thần sảng khoái.  
+  
+Trong lòng nàng không khỏi cảm thán một câu, tu tiên đúng là tốt thật!  
+  
+Nếu ở thời hiện đại mà thức trắng một đêm, lúc này sợ là đã mệt đến bã người rồi.  
+  
+Nàng lại liếc nhìn cây “gậy rắn” màu hồng được tiện tay đặt trên bàn. Thấy nó vẫn bất động như c.h.ế.t, không hề nhúc nhích.  
+  
+Nàng nhíu mày, cũng không biết nó có thật sự c.h.ế.t rồi hay không. Nếu chưa c.h.ế.t, vậy chắc hẳn cũng sẽ đói chứ?  
+  
+Hôm qua nó bò trên cây Kim Hồng Lựu, Kim Hồng Lựu hẳn cũng là thức ăn của nó.  
+  
+Tần Thù xách cây gậy rắn lên, tách miệng nó ra, cầm Kim Hồng Lựu bóp thử để nước quả nhỏ vào trong miệng nó.  
+  
+Bóp được nửa quả, nàng lại nghĩ, với thể trạng nhỏ bé của con rắn này, một quả Kim Hồng Lựu to bằng nắm tay chắc cũng ăn không hết. Nghĩ vậy, nàng liền dừng tay.  
+  
+Rất tốt, lại tiết kiệm được nửa quả.  
+  
+Nàng tự mình ăn một quả rưỡi, chỉ cảm thấy toàn thân ấm áp, tựa như đang tắm mình trong ánh mặt trời. Ngay cả linh khí trong kinh mạch vốn luôn vận chuyển không ngừng cũng trở nên thông suốt hơn hẳn.  
+  
+Hàn khí xâm nhập vào cơ thể từ lần rơi xuống hàn đàm hôm qua, lúc này cũng theo các khe xương tràn ra ngoài. Cảm giác thư thái ấy khiến người ta bất giác muốn rên rỉ thành tiếng.  
+  
+Kim Hồng Lựu sinh trưởng trên tiên sơn, hẳn cũng được xem là tiên quả? Đương nhiên không thể giống với trái cây phàm gian.  
+  
+Nếm được chỗ ngon, Tần Thù liền nghĩ, hôm nay làm xong công việc được giao thì sẽ lại đi hái thêm hai quả mang về.  
+  
+Chỉ là nàng không biết rằng, trong địa giới của Huyền Thiên Môn, đừng nói là một cây ăn quả, ngay cả một gốc tiên thảo bình thường cũng đều có chủ nhân.  
+  
+Mà quả của đại sư huynh Đan Tông bị nhị sư huynh lấy đi dùng để làm quà nhân tình, nhị sư huynh đương nhiên cũng chẳng thấy áy náy gì.  
+  
+Tần Thù bước ra khỏi phòng, quẹt thẻ thân phận lên phù văn trên cửa, cấm chế của căn phòng lập tức được kích hoạt trở lại. Dù nàng không ở đó, cũng sẽ không có ai tùy tiện xông vào.  
+  
+Điểm này có chút giống thẻ ra vào của hậu thế, trông cũng khá nhân tính hóa.  
+  
+Khi Tần Thù ra ngoài, sương mù bên ngoài vẫn chưa tan hết. Tiên sơn phía xa lúc ẩn lúc hiện, những đốm sáng xuyên qua làn sương chiếu xuống, tụ tán đan xen, rực rỡ loang lổ.  
+  
+Đẹp quá!  
+  
+Nàng hít một ngụm tiên khí, đang định bước ra hàng rào, thì lại phát hiện trong vườn ươm hôm qua còn trống trơn, hôm nay vậy mà đã nhú lên vài mầm lá non xanh biếc.
+
+[[Chương 7]]  [[Chương 9]]

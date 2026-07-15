@@ -1,55 +1,57 @@
-Ôn Trì nhíu mày, đến khi quay đầu lại thấy dung mạo của nàng, lại nhướng mày, đầy hứng thú nói: "Chậc chậc, cách ăn mặc này hay đấy, giống như một tiểu đạo cô vậy."  
+# Cơ thể ta… bị rò khí
+
+Tần Thù chỉ cảm thấy con rắn nhỏ này rơi vào kết cục thê t.h.ả.m như vậy là do mình gây ra, nàng sao có thể làm ngơ cho được? Người ta vốn dĩ đang yên lành ngủ trên cây, ai bảo tay nàng ngứa ngáy đi rung cây làm chi? Còn khiến nó ngã thành ra thương tích đầy mình thế này.  
   
-Tần Thù nhất thời cũng không đoán ra được hắn rốt cuộc có đang khen mình hay không, vả lại hai người cũng chưa thân thiết đến mức có thể trêu chọc nhau, chỉ sợ vị trước mặt này nổi tính khí lên, trực tiếp vung tay một cái quét nàng ra tận ngoài sơn môn.  
+Giờ đây nàng chỉ có thể ký thác hy vọng vào việc con rắn đen nhỏ này đã mở mang linh trí, sẽ không c.ắ.n người lung tung.  
   
-Nàng vội vàng hỏi: "Sư huynh, đệ t.ử mới nhập môn phải đi đâu dùng bữa?"  
+Tần Thù múc nước đầm lạnh, lau sạch vết m.á.u trên người con rắn nhỏ, một chậu nước trong dần dần nhuốm màu m.á.u đỏ. Tần Thù không kìm được cảm thán, một con rắn nhỏ thế này sao lại có thể chảy nhiều m.á.u đến vậy, nó rốt cuộc đã bị thương nặng đến mức nào?  
   
-Ôn Trì hiện giờ đã là tu vi Kim Đan, sớm đã tịch cốc rồi. Nghe thấy câu hỏi của nàng, hắn hơi ngẩn ra.  
+Nàng tiện tay hắt chậu nước m.á.u vào vườn ươm trước cửa, quay lại phòng nhìn con rắn nhỏ đầy vết thương kia, nàng chợt nhớ ra điều gì đó, vội vàng tìm ra cái túi nhỏ mà nguyên thân mang theo khi tới đây.  
   
-Hắn xuất thân thế gia, từ nhỏ đã ăn Bích Cốc đan mà lớn lên, thứ này không có quá nhiều tạp chất. Hắn không ăn khói lửa nhân gian, tự nhiên cũng không có ham muốn ăn uống.  
+Tần phu nhân biết giới tu tiên c.h.é.m c.h.é.m g.i.ế.c g.i.ế.c, sợ con gái mình bị thương nên đã đóng gói cho nàng loại Kim Sang d.ư.ợ.c thượng hạng, còn có cả một ít vàng bạc ngọc bội.  
   
-Mà Tần Thù nhìn thần sắc của hắn cũng ngơ ngác theo, chẳng lẽ lại mất nhân tính đến mức để đám tiểu đệ t.ử mới nhập môn như bọn họ tự nuôi sống bản thân sao? Thân thể này mới mười tuổi thôi mà...  
+Tần Thù run rẩy đôi tay ôm lấy hai thỏi vàng hình móng ngựa, tâm trạng lúc này của nàng không lời nào tả xiết.  
   
-Đối diện với vẻ mặt đầy nghi hoặc của Tần Thù, Ôn Trì khẽ ho một tiếng, mới nghiêm túc trả lời: "Ngày mai dậy sớm một chút hỏi người khác đi, sư huynh không biết chuyện này. Ngược lại hôm nay lúc ta xuống núi, thấy ở hướng tây bắc của đầm nước lạnh có một cây Kim Hồng Lựu Quả, mấy ngày nay vừa chín tới, muội đi hái một ít về mà lót dạ trước."  
+Cả hai kiếp cộng lại, đây là lần đầu tiên nàng thấy nhiều vàng đến thế, nhưng mà... vô dụng thôi! Giới tu tiên cần linh thạch, nàng vẫn là kẻ nghèo rớt mồng tơi.  
   
-Nói xong câu này, hắn còn phất tay áo, hảo tâm tiễn Tần Thù một đoạn.  
+Nàng ủ rũ lấy ra một lọ Kim Sang d.ư.ợ.c từ bên trong, mặc kệ nó có phải vật phàm hay không, chỉ cần có thể trị thương là được. Ngoài thứ này ra, hiện tại nàng cũng chẳng thể lấy ra được thánh phẩm trị thương nào khác.  
   
-Khi Tần Thù cưỡi gió bay đi, và rơi chuẩn xác vào giữa đầm nước lạnh, nàng thực sự nghi ngờ vị nhị sư huynh này rốt cuộc có phải cố ý hay không! Nguyên tác nói hắn nhìn ai cũng không vừa mắt cũng chẳng phải không có căn cứ.  
+Nàng rắc tỉ mỉ bột Kim Sang d.ư.ợ.c lên người con rắn đen nhỏ, có lẽ vì hơi đau nên con rắn nhỏ khẽ cử động một chút.  
   
-Cũng may là chỉ rơi ở ven bờ, nếu lại c.h.ế.t đuối lần nữa nàng nhất định phải đi tìm Diêm Vương gia để đòi công đạo cho bằng được! Nàng dùng cả tay chân bò từ trong đầm nước lạnh ra, gió đêm nhẹ nhàng lướt qua mặt nước, Tần Thù rùng mình một cái.  
+Đôi mày Tần Thù lập tức nhíu lại, vốn dĩ thân rắn đã trơn trượt, nó còn động đậy lung tung thì sao mà được?  
   
-Nàng thở dài, đây đúng là nỗi khổ trần gian gì vậy, đã đi tu tiên rồi mà còn lâm vào cảnh đói rét, nói ra chắc cũng chẳng ai tin.  
+Nàng ngẩng đầu nhìn quanh phòng một lượt, cuối cùng dừng mắt tại một dải lụa choàng của nguyên thân, mắt nàng chợt sáng lên.  
   
-Nàng vắt khô tay áo và vạt áo ướt sũng, cam chịu đi về hướng tây bắc.  
+Đợi đến khi nàng bận rộn một hồi, vỗ hai tay ra hiệu đại công cáo thành, trước mặt nàng xuất hiện một "khúc gậy" thắt nơ bướm.  
   
-Nếu nàng không tìm thấy cây Kim Hồng Lựu Quả này, thù này nàng và Ôn Trì coi như kết hạ!  
+Tần Thù nhìn kiệt tác của mình, hài lòng mỉm cười, đây tuyệt đối là cái nơ bướm tiêu chuẩn nhất mà nàng từng thắt trong đời.  
   
-Cũng may Ôn Trì vẫn chưa đến mức hoàn toàn mất nhân tính, nàng đi khoảng hai dặm đường, mới nương theo ánh trăng thấy được một cây ăn quả.  
+"Ta đã cố hết sức rồi, sống c.h.ế.t có số, nếu ngươi thực sự không qua được cửa ải này thì cũng đừng oán ta nhé..." Tần Thù chắp hai tay, lầm rầm khấn vái trước "khúc gậy rắn" trước mặt.  
   
-Nàng vốn đang mệt mỏi bỗng dưng có thêm động lực, nhảy lên nhảy xuống với lấy quả trên cây. Chiều cao của nàng không đủ, mới hái được bốn quả thì không với tới nữa.  
+Mười ngày trước, Tạ Thích Uyên đang độ phi thăng lôi kiếp, không ngờ bị kẻ phản đồ dưới trướng tiết lộ phong thanh, bị tám vị lão tổ tông kỳ Hợp Thể của chính phái liên thủ phục kích, thừa dịp hắn đang độ kiếp mà ra tay đ.á.n.h lén. Nguyên hình của hắn mạnh mẽ, gắng gượng gánh chịu lôi kiếp để đ.á.n.h trả.  
   
-Tần Thù vì đói đến đỏ mắt, dứt khoát ôm thân cây lắc lắc, mộng tưởng xem có thể lắc rụng được hai quả chín nẫu nào không.  
+Cuối cùng, tuy rằng thành công thoát thân, nhưng lại trọng thương trầm trọng, đến mức ngay cả nguyên hình cũng không duy trì nổi, chỉ có thể thu nhỏ hình thái, rơi xuống tiên sơn.  
   
-Tuy nhiên, ngay khoảnh khắc sau, một vật lạnh lẽo rơi xuống vai nàng.  
+Tất nhiên, tám vị trưởng lão kia cũng chẳng được lợi lộc gì, từng người một đều mang trọng thương trở về.  
   
-Tần Thù sợ đến rùng mình, đưa tay lên sờ, chạm vào là những lớp vảy mịn màng lạnh lẽo, nàng gần như là phản xạ có điều kiện mà nhảy dựng tại chỗ.  
+Bản thân Tạ Thích Uyên cũng không ngờ mình lại rơi trúng vào Đan tông của Huyền Thiên Môn, còn bị một tiểu nhi chưa dẫn khí nhập thể cả gan nhặt về.  
   
-"A——"  
+Loại Kim Sang d.ư.ợ.c kia ở nhân gian được coi là vật phẩm ghê gớm, nhưng đối với kẻ vừa hứng chịu tám mươi mốt đạo lôi kiếp như Tạ Thích Uyên mà nói, tác dụng của nó chỉ còn là muối bỏ bể.  
   
-Theo động tác của nàng, vật trên vai cũng rơi xuống đất.  
+Mặc dù chỉ là một hạt muối, nhưng dù sao có vẫn còn hơn không.  
   
-Tần Thù lấy can đảm nhìn kỹ, liền thấy một con rắn đen nhỏ cỡ ngón tay cái, dài bằng cánh tay trẻ con.  
+Lúc này, toàn thân Tạ Thích Uyên giống như một cành cây khô, chỉ còn lại tâm mạch cuối cùng được bảo hộ, khiến hắn giữ được một hơi tàn.  
   
-Con rắn đen nhỏ này trông thực sự có chút t.h.ả.m hại, vảy trên người chỗ thiếu chỗ mất, ẩn hiện còn có vệt m.á.u rỉ ra...  
+Những lớp Kim Sang d.ư.ợ.c được Tần Thù đắp dày cộm này, giống như những trận mưa phùn mùa xuân, thấm đẫm vạn vật một cách lặng lẽ.  
   
-.  
+Ý thức đang ngủ say của Tạ Thích Uyên nhận ra một chút thay đổi này, bèn phân ra một chút thần thức đi thăm dò, vừa nhìn thấy, hắn liền ngẩn người.  
   
-Tần Thù nằm mơ cũng không ngờ tới, mình lại nhặt một con rắn về.  
+?  
   
-Nàng bây giờ vẫn chưa dẫn khí nhập thể, chỉ là thân xác phàm nhân, mà con rắn đen nhỏ này dù có kém cỏi đến đâu cũng là linh thú lớn lên trên tiên sơn. Vạn nhất bị nó c.ắ.n một cái, nàng còn chẳng biết có giữ được mạng đến tám năm sau hay không.  
+Sao hắn lại biến thành một khúc gậy thế này?  
   
-Haizz——  
+Trên người còn quấn một lớp vải rách hồng phấn?! Còn cái nút thắt này nữa? Thật xấu xí!  
   
-Nàng thở dài một tiếng thườn thượt, cái lòng trắc ẩn c.h.ế.t tiệt này.
+Kẻ nào mà gan to bằng trời như thế?! Lại dám vọng tưởng dùng một miếng vải rách để giam cầm hắn! Trong lòng hắn trỗi dậy một tia sát ý.
 
 [[Chương 5]]  [[Chương 7]]

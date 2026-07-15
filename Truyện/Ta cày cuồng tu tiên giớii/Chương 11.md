@@ -1,0 +1,116 @@
+# Đã là luyện đan sư rồi, sao còn phải học kiếm
+
+Nàng dựa theo những gì ghi trong 《 Truyền Công Chỉ Nam 》, đặt cuốn chỉ dẫn ra trước mặt, ngồi xếp bằng nhắm mắt, vận chuyển linh khí.  
+  
+Luồng linh khí màu tím nhạt chậm rãi chảy qua kinh mạch của nàng, mà bản thân nàng lại tựa như hồn rời khỏi thể xác, tiến vào một không gian khác.  
+  
+Một thân ảnh tỏa ra ánh sáng màu vàng kim ngồi xếp bằng trước mặt nàng, đối diện với nàng, liên tục kết thủ ấn lặp đi lặp lại. Ban đầu tốc độ của hắn còn khá chậm, về sau lại càng lúc càng nhanh.  
+  
+Tần Thù lập tức nhận ra được điều gì đó, vội vàng làm theo động tác của hắn để học cách kết ấn. Về sau tốc độ của thân ảnh ấy đã nhanh tới mức xuất hiện cả tàn ảnh, Tần Thù thực sự không tài nào theo kịp. Nàng chỉ có thể thở dài, cố gắng ghi nhớ mọi thứ, đợi khi trở về sẽ lén luyện tập thêm.  
+  
+Thân ảnh kia thấy nàng không theo kịp nữa liền đứng dậy, trong tay xuất hiện một thanh trường kiếm màu vàng.  
+  
+Tần Thù sửng sốt, chẳng phải nàng là luyện đan sư sao? Sao lại còn phải học kiếm? Chẳng lẽ kiếm thuật là môn học bắt buộc của Huyền Thiên Môn?  
+
+Nhưng như vậy cũng tốt, tám năm nữa nàng dù sao cũng cần có chút thủ đoạn để tự bảo vệ mình.  
+Thế nhưng sau đó nàng lại thấy khó xử, nàng mới vừa nhập môn, lấy đâu ra kiếm chứ?  
+  
+Ý nghĩ ấy vừa lóe lên trong đầu, trong tay nàng liền xuất hiện một thanh trường kiếm màu tím, màu sắc có chút tương đồng với linh khí trong đan điền của nàng.  
+  
+Thân ảnh kia bắt đầu chuyển động, hết lần này đến lần khác thi triển các chiêu bổ rồi hất.  
+  
+Đây là lần đầu tiên trong đời Tần Thư cầm kiếm, nàng chỉ có thể cố gắng bắt chước, học theo từng động tác.  
+  
+Thế nhưng lần này thân ảnh tỏa ra ánh sáng ấy lại chậm dần, chậm dần, chậm đến mức nàng có thể thấy rõ ràng quỹ đạo của mũi kiếm, cũng như từng đường nét cơ bắp trên cánh tay đối phương.  
+  
+Nàng dồn toàn bộ sự tập trung vào cánh tay cầm kiếm của mình, cảm nhận sức lực của chính mình, rồi nàng dần dần hiểu ra.  
+  
+Kiếm chính là phần nối dài của cánh tay, việc dùng lực cũng không phải chỉ dựa vào chuyển động ở cổ tay.  
+  
+Ngay lúc nàng cảm thấy đang dần chìm đắm vào cảnh sắc tuyệt diệu, nàng bỗng giật mình mở mắt, phát hiện bản thân đã bị đẩy ra khỏi ảo cảnh. Khung cảnh xung quanh vẫn rực rỡ huy hoàng như trước, và trước mặt bày một quyển sách màu xanh.  
+  
+Đan điền của nàng thoáng có chút khó chịu, kiểm tra lại mới phát hiện, hóa ra linh khí trong người nàng đã gần như bị rút cạn, chỉ còn sót lại một chút bé cỡ hạt đậu vàng.  
+  
+Ở lại thêm cũng chẳng có ích gì, nàng thở dài, xếp gọn quyển sách lại, rồi lấy chiếc khăn tay mang theo bên mình, lau sạch bồ đoàn vừa ngồi khi nãy, nàng cúi đầu về phía khoảng không rồi nhẹ nhàng lui ra ngoài.  
+  
+Lúc này mặt trời bên ngoài đã lên cao, nhưng bên ngoài Truyền Công Điện vẫn yên tĩnh, không có lấy một bóng người.  
+  
+Tần Thù thầm nghĩ một tiếng thật kỳ lạ, chẳng lẽ người trong tu tiên giới đều không có tinh thần cầu tiến đến thế sao? Có kiểu giảng dạy bằng hình ảnh 3D tiên tiến thế này, chịu khó đến học tập nhiều hơn, chẳng phải có thể tiến bộ cực nhanh sao?  
+  
+Nếu thư viện ở hậu thế mà có được công nghệ này, e rằng phải đi xếp hàng chiếm chỗ từ tối hôm trước mất.  
+  
+Kỳ quái thì cũng kỳ quái thật, nhưng nàng cũng không nghĩ nhiều, liền xuống núi.  
+  
+Dọc đường không gặp chút trở ngại nào, càng tiến gần về phía chân núi, không khí xung quanh lại càng trở nên náo nhiệt.  
+  
+Tần Thù chặn một người lại để hỏi thăm xem nhà ăn của Đan tông nằm ở đâu, sau khi đối phương chỉ hướng cho mình, nàng mới có thể yên tâm.  
+  
+Cũng còn may, tông môn vẫn lo cơm nước, dù sao cũng không đến mức để một đứa trẻ mười tuổi phải tự nuôi sống bản thân. Bằng không, dù có cây Kim Hồng Lưu Quả kia thì nàng cũng chẳng cầm cự được mấy ngày.  
+  
+Bước vào nhà ăn, Tần THù cuối cùng cũng có cảm giác tìm được nơi mình thuộc về. Trong nhà ăn toàn là những đứa trẻ tầm tuổi thiếu niên, không khí vô cùng náo nhiệt  
+  
+Tần Thù vừa mới bước vào, liền có người gọi nàng:” Tần Thù! Ở bên này!”  
+  
+Tần Thù quay đầu nhìn lại, người gọi nàng tên là Hòa Hinh, năm nay mười hai tuổi, xem như là nửa đồng hương của nguyên thân, hai người cùng xuất thân từ Phạm Âm Thành, lại cùng đi chung một chiếc phi thuyền đến đây.  
+  
+“Ngươi  cũng ở Đan Tông sao? Thật là trùng hợp, ngươi chọn ở chỗ nào thế?” Hòa Hinh là kiểu người vừa gặp đã thân, khi nói chuyện đôi mắt hạnh tròn xoe của nàng luôn tràn ngập ý cười nhìn Tần Thù, khiến nàng thật sự không nỡ nói ra lời từ chối.  
+  
+"Ngay cạnh hàn đàm ấy." Tần Thù chỉ đại về một hướng.  
+  
+Hòa Hinh ngẫm nghĩ một lát, đại khái đã hiểu ra.  
+  
+Hòa Hinh lại hỏi tiếp: "Sao giờ này ngươi mới tới dùng bữa? Tầm này chẳng còn gì ngon nữa đâu, nhưng mà linh mễ ở đây đúng là khác hẳn với loại chúng ta từng ăn trước kia."  
+  
+Vốn Tần Thù vẫn luôn có chút cảnh giác với người lạ, thế nên nàng không kể hết mọi chuyện mà chỉ đáp: "Ta ngủ quên, ngày hôm qua mệt quá."  
+  
+Hòa Hinh che miệng cười khẽ: "Đã tới tiên sơn thì phải chuyên tâm tu luyện vào, sang năm là phải tự lực cánh sinh rồi, mới sớm dẫn khí nhập thể được."  
+  
+Tần Thù gật đầu, thấy người trong nhà ăn đúng là đã thưa dần, nàng mới vội nói: "Ta đi lấy cơm trước đã."  
+  
+Hòa Hinh cũng nói: "Vậy ta về trước đây. Lúc nãy ngươi không có ở đây, ta nghe họ bảo hai ngày này đừng chạy lung tung nữa, lo tranh thủ tu luyện đi. Những kẻ thiên tư xuất chúng thì chắc ba ngày là có thể dẫn khí nhập thể, còn hạng đệ t.ử ngoại môn như chúng ta, ít nhất cũng phải mười ngày trở lên."  
+  
+Tần Thù: "???"  
+  
+Mười ngày trở lên sao? Vậy chuyện nàng chỉ mất một đêm đã dẫn khí nhập thể thành công là thế nào?  
+  
+Trong lòng đầy nghi hoặc, nhưng nàng lại càng phải giấu cho kỹ. Khi chưa có thực lực tuyệt đối, cũng chẳng có chỗ dựa vững chắc, nàng cũng không muốn làm chim đầu đàn.  
+  
+Hòa Hinh thấy nàng ngẩn người liền thúc giục: "Ngươi mau đi ăn đi, ta ở phía Đông, cạnh cây liễu lớn kia, có việc gì cứ đến tìm ta."  
+  
+Tần Thù gật đầu đáp ứng, đợi Hòa Hinh đi xa rồi mới quay người đi lấy cơm.  
+  
+Dùng bữa xong, nghĩ đến con rắn nhỏ đang bị thương nặng ở nhà, nàng lấy thêm một quả linh quả miễn phí mang về.  
+  
+Đây là quả Chỉ Linh phổ biến nhất ở tu tiên giới, vị ngọt thanh nhưng chứa rất ít linh khí, thường chỉ có đám trẻ nhỏ chưa tích cốc mới thích ăn.  
+  
+Lần đầu Tần Thù ăn thử, cảm thấy mùi vị cũng không tệ, hơi giống quả sơn trà, mang theo một vị ngọt mát dịu nhẹ.  
+  
+“Con rắn kia bé tẹo như thế, chắc ăn một quả là đủ rồi nhỉ?”  
+  
+Trên đường về cũng có không ít người đang tản bộ quanh núi. Ai nấy đều lần đầu đến tiên sơn nên khó tránh khỏi tò mò, nhưng Tần Thù không muốn góp vui. Thời gian của nàng gấp rút, nhiệm vụ lại nặng nề, việc quan trọng nhất lúc này chính là nhanh ch.óng nâng cao tu vi.  
+  
+Quẹt lệnh bài thân phận để vào phòng, mọi thứ vẫn y hệt lúc nàng rời đi. Túi đồ vẫn mở tung trên bàn, và bên cạnh đó là gậy rắn nằm im lìm.  
+  
+Nó chẳng hề nhúc nhích, dường như nàng có uốn nó thành hình dạng gì thì nó vẫn sẽ giữ nguyên tư thế đó mãi như vậy.  
+  
+Tần Thù nổi hứng nghịch ngợm, nàng cầm cái đuôi nhỏ của nó lên, định bụng uốn thành một hình trái tim màu hồng, đặt trên bàn làm đồ trang trí xem chừng cũng ổn.  
+  
+Ai mà nỡ từ chối một trái tim màu hồng cơ chứ?  
+  
+Nàng lại làm giống như hồi sáng, cạy miệng rắn ra, cắt nhỏ quả Chỉ Linh rồi mớm cho nó.  
+  
+Lần này nàng còn nhìn kỹ hàm răng nhọn hoắt trong cái miệng đen ngòm kia, rốt cuộc chiếc nào là răng độc? Nàng cũng không rõ lắm.  
+  
+Nhưng thực sự là từ lúc nào không hay, nỗi sợ hãi của nàng đối với loài rắn đã giảm đi đáng kể. Con rắn đen nhỏ này hiện giờ trong tay nàng chẳng khác nào một món đồ chơi nhỏ vậy.  
+  
+Cho ăn xong xuôi, lại uốn con rắn thành hình trái tim, nàng mới phủi tay, ngồi xếp bằng trên bồ đoàn để hấp thụ linh khí.  
+  
+Nàng vốn tưởng tối qua đã trải qua một lần, lần này ít nhiều cũng có kinh nghiệm rồi.  
+  
+Thế nhưng, khi nàng nhắm mắt lại để cảm nhận những đốm sáng màu sắc thưa thớt trong không khí, cả người nàng bỗng ngây dại.  
+  
+Nàng đột nhiên mở bừng mắt, ánh mắt tràn đầy vẻ khó tin.  
+  
+Hả? Chuyện gì đang xảy ra vậy?
+
+[[Chương 10]]  [[Chương 12]]
