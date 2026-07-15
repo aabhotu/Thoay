@@ -1,11 +1,16 @@
 # Nếu chỉ còn 8 năm trên đời
 
-Toàn thân Tần Thù dường như bị nghiền nát, mỗi tấc xương thịt và gân cốt đều tràn ngập cơn đau thấu xương. \n
+Toàn thân Tần Thù dường như bị nghiền nát, mỗi tấc xương thịt và gân cốt đều tràn ngập cơn đau thấu xương.  
+  
 Mí mắt nàng nặng như ngàn cân, cách một lớp huyết sắc mông lung, ngay cả ánh nến cũng nhuốm màu đỏ sẫm.  
+  
 "Tỷ tỷ, ngày đó tỷ thay muội gia nhập Huyền Thiên Môn, có từng nghĩ sẽ có ngày hôm nay?" Một giọng nữ lười biếng, thong thả truyền đến bên tai nàng, khi xa khi gần, khiến nàng hoài nghi liệu đây có phải lại là một cơn ác mộng.  
+  
 Thế nhưng ngay khoảnh khắc sau, tiếng xương cốt vỡ vụn lại vang lên, cơn đau tức thì nhấn chìm lấy nàng.  
+  
 "A!" Nàng đau đớn kêu thét lên.  
 Chân của nàng... Đây không phải là mơ!  
+  
 Nàng mở mắt, nhìn về phía người đàn bà trước mặt, trang phục cổ kính, tay đang nghịch ngợm một thanh trường kiếm. Đó là một dung mạo nàng chưa từng thấy qua.  
   
 "Tỷ tỷ, chẳng phải tỷ cứng đầu lắm sao? Hóa ra cũng chỉ đến thế mà thôi, hì hì, muội còn chưa dùng bao nhiêu lực, sao nó đã nát bấy thế này rồi!" Ả nói với giọng điệu nhẹ nhàng, như thể vừa làm được việc gì đó rất đáng để khoe khoang.  
@@ -30,11 +35,9 @@ Nàng xuyên thư rồi. Xuyên vào một cuốn tiểu thuyết tiên hiệp n
   
 Ca ca của nữ chính là Tần Vô Nhai từng cứu mạng hậu bối của một vị trưởng lão Huyền Thiên Môn, vị trưởng lão kia để đáp tạ nên đã hứa cho muội muội hắn một suất vào môn phái. Mà đích mẫu của nữ chính là Tần phu nhân sau khi biết chuyện, đã âm thầm để con gái ruột của mình mạo danh nữ chính, chiếm lấy suất vào Huyền Thiên Môn.  
   
-[Truyện được đăng tải duy nhất tại MonkeyD.net.vn -  
-  
 Bọn họ vạn lần không ngờ tới, nữ chính tư chất siêu quần, cho dù không có tông môn vẫn có thể lấy võ nhập đạo. Chuyện tỷ tỷ mạo danh nàng ta cũng vì thế mà truyền khắp giới tu tiên. Huyền Thiên Tông thèm khát nhân tài này, sau khi dò hỏi mới biết hành vi năm đó của Tần gia, để bày tỏ lập trường, họ đã trực tiếp đuổi người tỷ tỷ kia khỏi sư môn!  
   
-Tỷ tỷ tư chất kém cỏi, vào Huyền Thiên Môn cũng chỉ là một đệ t.ử ngoại môn bình thường, cho đến lúc bị đuổi đi cũng mới chỉ có tu vi Luyện Khí tầng ba. Nàng ta vừa rời sơn môn đã rơi vào tay ma tu, vì dung mạo mỹ lệ nên bị luyện làm lô đỉnh, chịu tận khổ hình. Khó khăn lắm mới thoát khỏi tay ma, lại bị vị đại sư huynh mình từng thầm thương trộm nhớ bắt giữ, tận tay giao cho nữ chính Tần Miên, để nữ chính hả dạ trút giận.  
+Tỷ tỷ tư chất kém cỏi, vào Huyền Thiên Môn cũng chỉ là một đệ tử ngoại môn bình thường, cho đến lúc bị đuổi đi cũng mới chỉ có tu vi Luyện Khí tầng ba. Nàng ta vừa rời sơn môn đã rơi vào tay ma tu, vì dung mạo mỹ lệ nên bị luyện làm lô đỉnh, chịu tận khổ hình. Khó khăn lắm mới thoát khỏi tay ma, lại bị vị đại sư huynh mình từng thầm thương trộm nhớ bắt giữ, tận tay giao cho nữ chính Tần Miên, để nữ chính hả dạ trút giận.  
   
 Tần Thù chính là xuyên thành người tỷ tỷ này, nàng cũng không ngờ câu chữ "hả dạ trút giận" nhẹ nhàng trong sách lại diễn ra tàn khốc đến vậy... Toàn thân xương cốt bị đ.á.n.h nát, lại dùng đan d.ư.ợ.c treo một hơi tàn, không cho nàng c.h.ế.t ngay lập tức. Nếu không phải đại sư huynh vừa rồi thúc giục, e rằng ả còn muốn thay đổi trăm phương ngàn kế để hành hạ nàng. Thật sự tàn nhẫn.  
   
@@ -44,7 +47,7 @@ Nguyên chủ từng vô số lần hối hận, nói rằng nếu cho nàng ta 
   
 Lựa chọn này đặt ra trước mặt Tần Thù: tiến một bước, những đau đớn vừa trải qua có thể sẽ lặp lại; lùi một bước... đất rộng trời cao mặc chim bay. Thế nhưng, Tần Thù không hề nghĩ ngợi, kiên định chọn Huyền Thiên Môn. Đất rộng trời cao mặc chim bay không sai, nhưng nàng cũng phải bay lên được đã. Nàng mới thi đại học xong hai tháng trước, cái gì cũng không biết, rời khỏi Huyền Thiên Môn nàng phải sống sao đây? Có khi chẳng cần tới tám năm đã sớm bỏ mạng rồi.  
   
-Muốn bước vào giới tu tiên, tự nhiên phải có linh căn. Mẫu thân của nguyên chủ không biết từ con đường không chính thống nào mà biết được nguyên chủ có linh căn, lúc này mới đ.á.n.h liều để nàng mạo danh Tần Miên, hy vọng đ.á.n.h đổi lấy một tiền đồ tiên lộ tốt đẹp.  
+Muốn bước vào giới tu tiên, tự nhiên phải có linh căn. Mẫu thân của nguyên chủ không biết từ con đường không chính thống nào mà biết được nguyên chủ có linh căn, lúc này mới đánh liều để nàng mạo danh Tần Miên, hy vọng đ.á.n.h đổi lấy một tiền đồ tiên lộ tốt đẹp.  
   
 Thế nhưng bản thân Tần Thù cũng biết, nàng có duyên bước vào tiên lộ, nhưng không có mệnh phi thăng. Nguyên chủ tư chất tam linh căn, mới miễn cưỡng chạm tới ngưỡng cửa của Huyền Thiên Tông. Nếu đời này không có kỳ duyên gì, cả đời cũng chỉ có thể đạt tới mức Trúc Cơ.  
   
