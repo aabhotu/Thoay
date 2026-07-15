@@ -1,0 +1,123 @@
+# Ma tôn Tạ Thích Uyên
+
+“Mày sống lại rồi sao?! Tốt quá!” Tần Thù kích động nhấc bổng con rắn nhỏ.  
+  
+Lúc này, Tạ Thích Uyên có thể cảm nhận rõ bản thân đang bị kẻ khác bóp nghẹt yết hầu vận mệnh, theo bản năng, hắn cuộn đuôi lại, quấn mình lên cổ tay Tần Thù.  
+  
+Tần Thù tận mắt thấy nó cử động, bấy giờ mới thực sự trút bỏ được gánh nặng trong lòng: "May quá, may quá, mày vẫn chưa c.h.ế.t!”  
+  
+Giọng nói quan tâm này lọt vào tai Tạ Thích Uyên lại mang một tầng ý nghĩa khác.  
+  
+Từ khi sinh ra, hắn đã một thân một mình bò ra khỏi vỏ trứng, không cha không mẹ, cũng chẳng ai màng đến sự sống c.h.ế.t của hắn, đây là lần đầu tiên có người để tâm đến hắn như vậy.  
+  
+Hắn hơi mừng thầm trong lòng, không tự chủ được mà thè lưỡi ra.  
+ 
+"Mày đói hả? Nếu đói thì gật đầu một cái." Tần Thù hỏi.  
+  
+Tạ Thích Uyên vốn là một đại yêu đã độ qua phi thăng lôi kiếp, đã đạt đến cảnh giới tịch cốc từ sớm rồi, sao có thể đói được?  
+  
+Hắn lắc đầu, hành động này rơi vào mắt Tần Thù khiến đôi mắt nàng sáng rực lên: "Mày hiểu được tiếng người thật sao! Hóa ra mày là linh thú! Tuyệt quá!"  
+  
+Con nhóc loài người này đúng là ấu trĩ thật, Tạ Thích Uyên thầm mỉa mai trong lòng.  
+  
+Ngay sau đó, hắn thấy Tần Thù lấy một quả Chỉ Linh từ trong túi càn khôn ra, nói với hắn rằng: "Tao cho mày ăn quả, mày đừng c.ắ.n tao đấy nhé?”  
+  
+Tạ Thích Uyên liếc nhìn loại linh quả cấp thấp mà bình thường vốn sẽ chẳng bao giờ xuất hiện trước mặt mình, con ngươi hắn phút chốc co lại.  
+  
+Tần Thù thấy nó mãi không gật đầu, nàng mím môi, vẻ mặt đầy nghiêm trọng.  
+  
+Tạ Thích Uyên nhìn nàng một cái, rồi lại gục đầu lên cánh tay nàng.  
+  
+Trên người nàng đang tỏa linh khí, chẳng rõ linh thể của nàng là gì mà lại có chút tác dụng trong việc chữa trị thương thế cho hắn, thôi thì tạm thời giữ mạng cho nàng vậy.  
+  
+Tần Thù thấy rõ vẻ khinh thường trong ánh mắt của nó, nàng hơi nhăn mũi, c.ắ.n một miếng Chỉ Linh Quả, bĩu môi lầm bầm: "Cho mày ăn trái cây mà mày không chịu, lúc mày chưa tỉnh ăn hăng hái lắm mà!"  
+  
+Tạ Thích Uyên: “…”  
+  
+Con nhóc này dám thừa nước đục thả câu, vậy mà còn dám nhắc lại chuyện đó! Nếu không phải nàng còn chút giá trị lợi dụng, chắc hắn đã nuốt chửng nàng mất rồi.  
+  
+Thấy tiểu hắc xà nằm bò trên cổ tay mình nhắm mắt lại, rõ ràng là không muốn đếm xỉa gì đến mình.  
+  
+Tần Thù cảm thấy không vui, nàng túm lấy đuôi nó, định gỡ nó ra khỏi cổ tay.  
+  
+Tạ Thích Uyên vừa mới chợp mắt lại bị nàng làm tỉnh giấc, tuy tâm mạch đã hồi phục đôi chút, nhưng thương thế của hắn quá nặng, kinh mạch toàn thân đứt đoạn đến bảy tám phần, vẫn còn vô cùng suy nhược.  
+  
+Hắn c.ầ.n s.ay giấc! Hắn cần chữa thương!  
+  
+Vừa mở mắt ra, hắn đã nghe thấy tiếng bé gái vang bên tai: "Đừng có bám người như vậy, ngủ một mình đi!"  
+  
+Tạ Thích Uyên tức đến nghẹn họng, lại bò lên cổ tay nàng, Tần Thù vừa định kéo nó xuống thì thấy trên người nó lóe lên một tia sáng mờ ảo, trên cổ tay trắng ngần của nàng bỗng xuất hiện một hình xăm con rắn đen, trông cực kỳ hoang dại.  
+  
+Tần Thù cũng bực mình, nhưng nàng hết cách, đành để nó tạm trú ngụ trên cổ tay mình.  
+  
+Hôm sau, cũng chính là ngày nàng có hẹn với Hòa Hinh.  
+  
+Nàng đứng dậy khỏi đệm, rửa mặt sạch sẽ rồi mang theo túi càn khôn đã chuẩn bị sẵn bước ra khỏi cửa.  
+  
+Đến điểm hẹn, Hòa Hinh vẫn chưa tới, Tần Thù đợi chưa đầy một khắc thì thấy Hòa Hinh đang chạy hớt hải về phía mình.  
+  
+"Tần Thù! Ta dẫn khí nhập thể thành công rồi!" Hòa Hinh thở không ra hơi, vội vàng chia sẻ tin vui này với bạn mình.  
+  
+"Chúc mừng, chúc mừng! Mới tám ngày đã thành công rồi, ngươi giỏi ghê." Tần Thù chân thành khen ngợi.  
+  
+Nếu không phải trong quá trình xuyên không trọng sinh đã xảy ra trục trặc gì đó, thì với tư chất của nguyên thân, phỏng chừng một tháng cũng chưa chắc đã dẫn khí nhập thể thành công.  
+  
+Tư chất của Hòa Hinh tốt hơn nguyên chủ rất nhiều, trong ký ức của nàng, Hòa Hinh mang Hỏa và Mộc song linh căn, vốn sinh ra là để luyện đan.  
+  
+Nếu không phải vì căn cốt của cả hai linh căn của Hòa Hinh đều chưa đạt tới tám mươi, có lẽ giờ này nàng ấy đã là đệ t.ử nội môn rồi.  
+  
+Hòa Hinh cũng đầy phấn khởi: "Đúng vậy! Ta vừa dẫn khí nhập thể thành công vào sáng nay nên mới tới muộn, ngươi đừng giận nhé, lát nữa ta mời ngươi ăn ngon."  
+  
+Tần Thù nháy mắt với nàng ấy: "Ngươi dẫn khí nhập thể thành công ta vui còn chẳng kịp, sao mà giận cho được? Chúng ta mau đi thôi, ta cũng muốn xem khu chợ của tiên gia trông như thế nào, không biết có khác gì so với thành Phạm Âm của chúng ta không."  
+  
+Thấy Tần Thù vừa dứt lời đã định nhấc chân xuống núi, Hòa Hinh vội vàng kéo nàng lại: "Ngươi đi đâu thế?"  
+  
+Tần Thù ngơ ngác, quay đầu lại hỏi: "Không phải là xuống núi sao?"  
+  
+Hòa Hinh che miệng cười khúc khích: "Núi tiên rộng lớn vô cùng, đi bộ xuống thì chẳng biết khi nào mới tới nơi!"  
+  
+"Vậy phải đi bằng cách nào?" Tần Thù hỏi ngược lại.  
+  
+"Đi theo ta, ta đã nghe ngóng được rồi, tông môn có trận pháp truyền tống chuyên dụng, đến thành Xích Kim chỉ tốn có hai viên linh thạch hạ phẩm thôi."  
+  
+Hai viên linh thạch hạ phẩm ư…  
+  
+Tần Thù chỉ cảm thấy nhói lòng, giờ nàng chỉ có tổng cộng mười viên, dùng một lần trận pháp truyền tống là mất gần một phần năm tài sản rồi.  
+  
+Hòa Hinh quan sát sắc mặt của nàng, cảm thấy buồn cười, bèn ghé sát tai nàng thì thầm: "Tần Thù à, ta có lén hỏi Thư Huỳnh sư tỷ, tỷ ấy nói chúng ta có thể phân loại d.ư.ợ.c liệu giúp d.ư.ợ.c điền, việc này tuy tốn công, lại được rất ít linh thạch, các đệ t.ử trước không ai muốn làm, nhưng chúng ta thì có thể đó! Kiếm chút điểm tích lũy là đổi được linh thạch rồi!"  
+  
+Nghe giọng điệu hưng phấn của nàng ấy, Tần Thù biết hai người đã có cùng ý tưởng, nhưng họ nghĩ ra được việc này thì các đệ t.ử khác chắc cũng vậy thôi.  
+  
+Bây giờ chỉ có thể tranh thủ lúc mọi người chưa dẫn khí nhập thể thành công mà kiếm chác vài ngày trước đã.  
+  
+Chẳng mấy chốc, cả hai đã đến cạnh trận pháp truyền tống.  
+  
+Mỗi lần có thể truyền tống mười đệ t.ử, lúc Tần Thù đến nơi thì đã có một đợt vừa xuất phát, họ phải ở lại đợi đủ người.  
+  
+Đúng lúc này, trên bầu trời, một cỗ xe ngựa do Thiên Mã kéo đang bay về phía ngọn núi cao nhất.  
+  
+Tần Thù nghe thấy bên cạnh có người ngạc nhiên lên tiếng: "Đó chẳng phải là xe ngựa của Thiên Cơ Các à? Sao lại đến tông môn chúng ta thế này? Chẳng lẽ tu chân giới lại sắp có biến gì?"  
+  
+"Ngươi lên Ngọc Giản xem thử đi."  
+  
+Tần Thù chứng kiến họ lấy Ngọc Giản ra, lướt lấy lướt để, chẳng khác gì việc lướt điện thoại hóng chuyện ở hậu thế.  
+  
+"Ta thấy trên Thiên Cơ Các có người bảo rằng, hình như chưởng môn của họ đã tìm ra tung tích của Ma tôn Tạ Thích Uyên rồi.”  
+  
+Ba chữ Tạ Thích Uyên đã thành công khiến đồng t.ử của Tần Thù co rút lại, nàng cũng biết cái tên này.  
+  
+Ma tôn Tạ Thích Uyên chính là phản diện chính trong nguyên tác, sách viết rằng, tám môn phái lớn gồm Lạc Vân Tông, Yểm Nguyệt Tông, Huyền Thiên Môn, Thiên Cương Cung, Hợp Hoan Tông, Bách Hoa Các đã lợi dụng lúc Ma tôn độ kiếp để bao vây hắn, nhưng kết quả không thành, ngược lại còn chuốc lấy thù hận.  
+  
+Sau khi vết thương hồi phục, hắn quay về Trọng Thiên Cung, dẫn theo mười vạn vạn Ma tộc xâm chiếm Đông Châu, nơi tám môn phái lớn tọa lạc.  
+  
+Chỉ trong chớp mắt, con số thương vong ở Đông Châu tăng vọt, trời đất đảo lộn.  
+  
+Cuối cùng, vẫn là nữ chính Tần Miên dựa vào kiếm đạo của mình, hợp làm một với Vô Tình kiếm, mới đả thương được Ma tôn lần nữa.  
+  
+Nhát kiếm này cũng khiến Ma tôn Tạ Thích Uyên yêu nàng sâu đậm, cam tâm tình nguyện buông bỏ ân oán cũ với tám tông môn lớn.  
+  
+Tần Thù cũng vì đọc tới đoạn này mà bỏ cả bộ truyện, Ma tôn một thế hệ hóa ra lại là não yêu đương sao?  
+  
+Tác giả vì muốn xây dựng hình tượng cho nữ chính mà cưỡng ép hạ thấp trí tuệ của Ma tông, lại còn vì bị đ.â.m một nhát mà nảy sinh tình yêu, cái tên Ma tôn Tạ Thích Uyên này là kẻ khổ dâm à?
+
+[[Chương 16]] [[Chương 18]] 

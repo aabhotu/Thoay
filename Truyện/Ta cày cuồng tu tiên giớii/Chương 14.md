@@ -1,0 +1,115 @@
+# Đúng là một sự hiểu lầm tốt đẹp
+
+Ngày thứ ba nhập môn, đệ t.ử mới của các phái có thể đến Nhiệm Vụ Đường để nhận phúc lợi. Đối với đệ t.ử đã nhập môn được một năm, họ buộc phải đến Nhiệm Vụ Đường nhận nhiệm vụ lấy điểm tích lũy, điểm này dùng để quy đổi linh thạch và các tài nguyên khác.  
+  
+Trong một năm này có thể xem là thời gian trưởng thành mà tông môn dành cho đệ t.ử.  
+  
+Đây là lần đầu tiên Tần Thù đến Nhiệm Vụ Đường, Hòa Hinh chỉ tay về phía kiến trúc khác ngay bên cạnh và nói: “Nhiệm Vụ Đường và Truyền Công Đường nằm kế nhau, sau khi ngươi dẫn khí nhập thể thành công thì cứ đến thẳng đó là được.”  
+  
+Tần Thù: “???”  
+  
+Nơi này hoàn toàn xa lạ, nàng chắc như đóng đinh rằng mình chưa từng đặt chân tới đây bao giờ.  
+  
+Nhưng nếu đây là Truyền Công Đường, vậy nơi nàng đến hôm qua là chốn nào!?  
+ 
+Trong lòng Tần Thù đầy rẫy nghi hoặc, nếu bảo nàng đi nhầm chỗ, vậy thì phải giải thích thế nào đối với những kết ấn và kiếm pháp nền tảng mà nàng học được đây?  
+  
+Dẫu trong lòng nàng có hàng vạn câu hỏi vì sao, nhưng lúc bấy giờ chỉ đành nhẫn nhịn im lặng.  
+  
+Trong sách đã dạy, người ngay thẳng, có gì nói nấy thường không sống nổi quá ba tập.  
+  
+Tần Thù theo Hòa Hinh vào Nhiệm Vụ Đường, sư tỷ ở đó bảo các nàng cầm lệnh bài ấn lên phù văn, trên khay gỗ trước mặt sẽ tự động xuất hiện vật phẩm dành cho các nàng.  
+  
+Mười viên linh thạch hạ phẩm, một bình Bổ Linh Đan, ngoài ra còn có thêm một bình Tẩy Trần Đan.  
+  
+Hòa Hinh cầm lấy phần của mình, khẽ “á” một tiếng, ngạc nhiên ngẩng đầu hỏi: “Sư tỷ, sao lại xuất hiện thêm một bình thế này?”  
+  
+Thư Huỳnh cười giải thích: “Đó là Tẩy Trần Đan, các tông phái khác không có đâu, đây là phúc lợi mà lão tổ tông của Đan tông ta tặng cho các đệ t.ử mới nhập môn đấy. Sử dụng Tẩy Trần Đan trước khi Trúc Cơ sẽ có tác dụng gột tẩy cả cơ thể, cơi như trợ giúp các muội một tay trên con đường tu hành sau này.”  
+  
+Cũng chỉ có Đan tông mới giàu có hào sảng như vậy, một bình sứ này chứa tới ba viên Tẩy Trần Đan, mỗi viên đem bán có thể đổi được hẳn hai mươi linh thạch hạ phẩm.  
+  
+Thế nhưng bọn họ đều là đệ t.ử ngoại môn, không đủ tư chất, thứ này cầu còn không được, ai lại dại mà đem đi đổi lấy linh thạch cơ chứ?  
+  
+Tần Thù cũng bắt chước động tác của Hòa Hinh lúc nãy, nhận lấy phần của mình.  
+  
+Nàng nắm c.h.ặ.t bình sứ trên tay, trong lòng thầm vui sướng, chợt nghe Hòa Hinh đứng cạnh hỏi thêm một câu: “Sư tỷ, sau khi dùng Tẩy Trần Đan này, điểm linh căn có tăng lên không?”  
+  
+Lời vừa dứt, Tần Thù lập tức vểnh tai lên nghe ngóng.  
+  
+Thư Huỳnh lắc đầu, đáp: “Không, điểm linh căn là thứ không thể thay đổi được. Nhưng các muội vốn sống ở phàm trần, ăn ngũ cốc tạp lương nên có rất nhiều tạp chất tích tụ trong cơ thể, điều này khiến việc kết nối với linh khí trời đất trở nên khó hơn. Công dụng của Tẩy Trần Đan này là thanh tẩy tạp chất trong cơ thể và giúp các muội hấp thụ linh khí mà thôi.”  
+  
+Nghe vậy, Hòa Hinh ủ rũ hẳn đi, Tần Thù cũng thầm thở dài trong lòng.  
+  
+Nhưng nàng đã thông suốt ngay rằng nếu trên đời thật sự có một loại đan d.ư.ợ.c giúp tẩy linh căn, vậy thì dù chỉ tăng một chút thôi cũng là bảo vật vô giá, không thể nào tùy tiện phát cho bọn họ được.  
+  
+Đối với những đệ t.ử có thuộc tính linh căn thấp như bọn họ, tăng thêm một hai điểm linh căn nhìn sơ thì có vẻ không ảnh hưởng gì lắm, nhưng hãy nhìn vị thiên tài có linh căn Hỏa chín mươi chín điểm lúc nhập môn kia mà xem, nếu người đó có thêm một điểm này thôi thì đã trở thành linh căn Thiên rồi, tu luyện thêm một thời gian thì chẳng khác nào một ngày đi nghìn dặm cả.  
+  
+Tần Thù thừa nhận bản thân hơi đố kỵ, nàng cũng thầm thề rằng, một ngày nào đó, nàng nhất định phải tìm cho bằng được một món bảo vật có thể tẩy linh căn. Nếu ông trời đã cho nàng sống lại một đời, nàng không thể làm một tên phế vật mãi được, phải làm liều một phen.  
+  
+Sau khi nhận phúc lợi, cả hai đã đi dùng bữa sáng cùng nhau, Tần Thù còn cuốn gói hai cái màn thầu và linh quả về.  
+  
+Hòa Hinh thấy vậy bèn tò mò hỏi: “Ngươi vẫn chưa ăn no à?”  
+  
+Tần Thù mỉm cười đáp: “Ngày nào cũng đi tới đi lui để dùng bữa tốn thời gian quá, nên ta đem về ăn luôn.”  
+  
+Dù sao Hòa Hinh cũng chỉ là một cô bé, nàng sao có thể ngờ được lại có người chăm chỉ đến mức này? Ngay cả thời gian đi ăn cơm cũng muốn tiết kiệm cho bằng được.  
+  
+Nhưng nàng đã hiểu ra ngay, gật đầu với vẻ mặt đầy nghiêm túc: “Ngươi nói phải, đúng là hơi tốn thời gian thật, để ta đi lấy thêm hai cái màn thầu, quyết tâm gắng gượng đến lúc dẫn khí nhập thể mới ra ngoài.”  
+  
+Tần Thù: “…”  
+  
+Nàng cúi đầu nhìn hai cái màn thầu trên tay, chợt cảm thấy hình như hơi ít.  
+  
+“Giá mà tông môn phát Tích Cốc Đan thì tốt biết mấy.” Tần Thù khẽ lẩm bẩm một câu.  
+  
+Hòa Hinh cầm bốn cái màn thầu quay lại, đúng lúc nghe thấy câu này, bèn cười nói nàng: “Trong tay chúng ta đang có linh thạch, đợi năm ngày sau đến chợ phiên mua là được, chắc chắn có người bán thôi mà.”  
+  
+Tần Thù gật đầu, sau đó tạm biệt Hòa Hinh.  
+  
+Nhưng nàng không trở về ngay mà nương theo bậc thang lên núi.  
+  
+Nàng vẫn muốn quay lại cái nơi gọi là “Truyền Công Đường” mà hôm qua Duệ Minh dẫn nàng tới để xem thử, chẳng lẽ nàng đã đi nhầm đường thật?  
+  
+Tuy nhiên lần này nàng mới đi được nửa đường đã có người chặn lại.  
+  
+“Kẻ nào!” Hai bóng người mặc áo xanh xuất hiện trên bậc thềm, tay lăm lăm pháp khí.  
+  
+Tần Thủ sững người, theo bản năng lùi lại một bước, chắp tay nói: “Hai vị sư huynh, muội là đệ t.ử ngoại môn Tần Thù, chỉ là tình cờ đi ngang qua đây…”  
+  
+Lời còn chưa dứt đã bị cắt ngang: “Nơi này là cấm địa của Đan tông ta, bất kể ngươi là kẻ nào, nếu không có thủ lệnh của tông chủ thì đều phải dừng bước!”  
+  
+Tần Thủ thấy giọng điệu của họ không mấy thiện cảm, bèn vội vàng lùi lại thêm vài bước, cung kính hành lễ: “Đi ngay, đi ngay đây.”  
+  
+Nàng vừa nói vừa chuồn lẹ, chỉ sợ lỡ chậm chân một chút sẽ bị phát hiện nàng xâm nhập cấm địa.  
+  
+Đến nước này, nàng cũng đã hiểu ra, nơi hôm qua nàng đến chẳng phải là Truyền Công Đường gì cả, chắc hẳn Duệ Minh đã dẫn sai chỗ.  
+  
+Nhưng chuyện này cũng không thể trách Duệ Minh được, kết ấn mà nàng học ngày hôm đó quả thực là chiêu đại sát.  
+  
+Có điều danh không chính, ngôn không thuận, bây giờ nàng vẫn chưa dùng đến được.  
+  
+Lần này Tần Thù về thẳng chỗ ở của mình, múc sẵn hai thùng nước lạnh để dự phòng. Sau đó nàng khoanh chân ngồi xuống, đổ ra một viên Tẩy Trần Đan từ trong bình sứ.  
+  
+Tẩy Trần Đan này cũng tỏa ra hương d.ư.ợ.c thoang thoảng, nhưng không hề sánh bằng bình đan d.ư.ợ.c vô danh kia của nàng.  
+  
+Tần Thù ngẩng đầu nuốt viên đan d.ư.ợ.c vào, t.h.u.ố.c vào miệng đã tan ngay.  
+  
+Một luồng hương thảo mộc thanh khiết men theo khoang miệng lan tỏa khắp lục phủ ngũ tạng, cơ thể nàng giống như vùng đất khô hạn lâu ngày chợt gặp được cơn mưa rào, hấp thụ điên cuồng dưỡng chất bên trong.  
+  
+Tần Thù cảm nhận được gân cốt mình đang giãn ra từng tấc một, linh khí trong đan điền cũng vận chuyển trơn tru hơn hẳn, chỉ có điều nàng vẫn chưa có cách nào giải quyết được vấn đề linh khí vận hành một vòng lại vơi đi một chút kia.  
+  
+Đúng lúc này, cảm giác khoan khoái khiến người ta phải thở hắt ra kia đột nhiên dừng lại. Tựa như gãi không đúng chỗ ngứa, vừa mới có chút cảm giác thì đã hết d.ư.ợ.c hiệu rồi ư?  
+  
+Tần Thù nhíu mày bực bội, rồi lại nuốt thêm một viên nữa, sau đó nhắm mắt điều tức, đợi đến khi uống sạch cả ba viên đan d.ư.ợ.c, nàng mới nặng nề thở ra một luồng khí đục, mở mắt ra, ánh mắt sáng rực như đuốc.  
+  
+Bây giờ nàng đã hiểu vì sao tông môn lại phát cho mỗi người ba viên đan d.ư.ợ.c rồi, hóa ra đều đã được tính toán kỹ lưỡng cả…  
+  
+Tần Thù khẽ cử động, trên mặt nàng dường như có những mảnh vụn đang rơi ra.  
+  
+Nàng nhíu mày, đống vụn đó rơi ngày càng nhiều hơn.  
+  
+Lúc này nàng mới nhấc cánh tay lên nhìn, chỉ thấy trên da mình như phủ một lớp đá vôi màu xám xanh, cứng ngắc, lại còn tỏa ra một thứ mùi khó diễn tả bằng lời, giống hệt như một bãi rác đã ủ lên men hơn chục ngày vậy.  
+  
+Thứ đan d.ư.ợ.c này không nên gọi là Tẩy Trần Đan, mà phải gọi là Sinh Trần Đan mới đúng." Tần Thù nhảy khỏi đệm, vừa cởi y phục vừa cảm thán.
+
+[[Chương 13]] [[Chương 15]] 

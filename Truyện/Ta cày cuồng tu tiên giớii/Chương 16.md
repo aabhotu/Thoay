@@ -1,0 +1,113 @@
+# Con rắn nhỏ của nàng sống lại rồi
+
+Tần Thù suy nghĩ, thấy học Hỏa Cầu Thuật cũng ổn, điểm căn cốt Hỏa linh căn của nàng cao nhất, bắt đầu từ đây chắc hẳn sẽ đơn giản hơn nhiều.  
+  
+“Vậy làm phiền sư tỷ rồi.”  
+  
+Thư Huỳnh dạy nàng pháp quyết của Hỏa Cầu Thuật, lại còn tỉ mỉ hướng dẫn nàng cách kết ấn và làm sao để dẫn linh khí Hỏa ra ngoài.  
+  
+Tần Thù nghe thì hiểu, nhưng nàng lại càng thấy hoang mang.  
+  
+Dẫn linh khí Hỏa ra ngoài ư? Nhưng ba loại linh khí của nàng đã ngưng tụ thành một rồi mà? Phải tách chúng ra thế nào đây?  
+  
+Thư Huỳnh thấy Tần Thù trố đôi mắt hạnh, dáng vẻ ngây ngô, không kìm được đưa tay nhéo má nàng một cái, mỉm cười đầy dịu dàng: “Chắc các muội vẫn chưa nghe hiểu ngay được đâu, không sao cả, cứ thử xem sao, dần dần sẽ tìm được cảm giác thôi.”  
+
+Tần Thù chớp mắt, mang thân xác mười tuổi và bị người ta nhéo má đúng là hơi ngại thật.  
+  
+Đối diện với nụ cười khích lệ của Thư Huỳnh, Tần Thù chậm rãi làm theo động tác kết ấn của tỷ ấy, cuối cùng thấy Thư Huỳnh dẫn linh khí hỏa ra, một nhúm lửa đỏ rực nhảy nhót trên đầu ngón tay.  
+  
+Tần Thù cũng không biết làm sao để tách linh khí Hỏa ra, nàng đành dứt khoát dẫn chút linh khí màu tím của mình ra ngoài.  
+  
+Chỉ nghe một tiếng “phụt”, một đốm lửa hiện lên nơi lòng bàn tay nàng, nhưng lại tan biến ngay sau đó.  
+  
+Ánh mắt Thư Huỳnh hiện lên vẻ ngạc nhiên: “Tốt lắm, mới lần đầu tiên đã thấy được lửa thì muội đã lợi hại lắm rồi, thử lại lần nữa xem.”  
+  
+Tần Thù thừa biết rõ ngọn lửa kia chỉ lóe lên trong chốc lát mà thôi, có điều đó là do ban nãy nàng dẫn ra quá ít linh khí.  
+  
+Nhưng khi chạm phải ánh mắt không mấy thiện cảm của thiếu niên bên cạnh, sự cảnh giác vốn đã buông lỏng nãy giờ của nàng lập tức trỗi dậy.  
+  
+Phải rồi, s.ú.n.g b.ắ.n trúng con chim đầu đàn, nàng mang tam linh căn tạp nham mà có thể dẫn khí nhập thể chỉ trong bốn ngày ngắn ngủi đã đủ gây chú ý rồi, nếu còn để lộ ra khả năng lĩnh ngộ kinh người, e rằng những ngày tháng sau này sẽ chẳng được yên thân.  
+  
+Lòng nàng đã định, nên giờ chỉ thản nhiên kết ấn thêm lần nữa trước mặt họ, nhưng lần này lại không có một đốm lửa nào.  
+  
+Nàng thử thêm vài lần nữa nhưng vẫn thất bại, thần sắc cũng lộ rõ vẻ nôn nóng.  
+  
+"Sao lại thế này! Rõ ràng muội đã làm đúng y hệt động tác vừa rồi mà?" Giọng cô bé hơi lanh lảnh, cộng thêm việc cố ý cao giọng nên đã thu hút sự chú ý của cả Truyền Công Đường.  
+  
+Thiếu niên gầy gò kia khẽ nhếch môi, mỉa mai: "Vừa rồi ngươi ăn may thôi, con đường tu tiên làm gì có chuyện may mắn mãi được? Thiên tài thực sự có thể ngưng tụ hỏa cầu chỉ sau một hai lần thì đã vào nội môn từ lâu rồi, làm gì còn ở đây nữa!"  
+  
+Vai Tần Thù rũ xuống, Thư Huỳnh thấy vậy liền nhíu mày không vui, quay sang an ủi nàng: "Cô bé có căn cốt Hỏa linh căn chín mươi chín điểm nhập môn cùng đợt kia cũng phải mất tận hai ngày mới ngưng tụ được hỏa cầu đấy. Muội muội à, đừng vội làm gì, cứ luyện thêm vài lần nữa biết đâu sẽ thành công?"  
+  
+Tần Thù gật đầu đáp: "Đa tạ sư tỷ, muội biết rồi, muội sẽ về thử lại."  
+  
+Nàng quay người rời đi, bóng lưng trông vô cùng thất thần.  
+  
+Thư Huỳnh nhìn chỉ biết thở dài, cô bé vẫn còn quá nhỏ, chút đả kích này chưa là gì cả... Sau này nàng sẽ hiểu, trên con đường tu tiên, nơi nơi đều là đả kích.  
+  
+Vừa ra khỏi cửa, thoát khỏi tầm mắt của họ, Tần Thù lập tức khôi phục trạng thái bình thường.  
+  
+Tên nhóc kia xem ra cũng chỉ có số làm bia đỡ đạn, vừa bao đồng vừa hẹp hòi, không chịu nổi khi thấy người khác giỏi hơn mình.  
+  
+Tần Thù trở về căn phòng gỗ nhỏ, lần này nàng bế quan ròng rã bốn ngày, ngoại trừ việc mỗi sáng đến nhà ăn nhận màn thầu, thời gian còn lại nàng đều dành để nghiên cứu cách sử dụng linh khí.  
+  
+Đầu tiên, nàng làm theo những gì Thư Huỳnh đã dạy, kết ấn theo pháp quyết, sau đó dẫn linh khí từ đan điền ra, tùy theo lượng linh khí dẫn ra mà hỏa cầu trong lòng bàn tay nàng cũng lúc to lúc nhỏ.  
+  
+Tần Thù ghi nhớ cảm giác này, lần này nàng không hề kết ấn, chỉ xòe lòng bàn tay ra, một nhúm hỏa cầu đã lập tức hiện hình.  
+  
+Nàng đưa tay chạm nhẹ, lạ thay lại chẳng hề cảm thấy bỏng rát.  
+  
+Nhưng khi nàng dùng đốm lửa này để thắp đèn, ngọn đèn lại sáng lên.  
+  
+Lòng nàng khẽ d.a.o động, ngọn lửa nơi đầu ngón tay liền biến thành một luồng linh khí mộc xanh biếc, vừa d.a.o động thêm lần nữa lại hóa thành linh khí thổ.  
+  
+Tần Thù nhoẻn miệng cười, hóa ra linh khí màu tím này có thể chuyển đổi bất cứ lúc nào.  
+  
+Như vậy cũng tốt, căn cốt mộc và thổ của nàng linh căn vốn khá thấp, hấp thụ cũng chậm, nhân cơ hội này nàng có thể mượn chút linh khí hỏa đang rất sung mãn để bù đắp.  
+  
+Tần Thù lúc này đã hiểu rõ, sự tồn tại của Truyền Công Đường thực chất là để dạy cho đệ t.ử mới nhập môn cách sử dụng linh khí.  
+  
+Nhưng thật ra con nhà tông không giống lông cũng giống cánh, dẫn linh khí hỏa ra đầu ngón tay thì cuối cùng vẫn hóa thành lửa mà thôi; dẫn linh khí mộc vào cây cỏ thì sẽ thúc đẩy thực vật sinh trưởng, thậm chí có thể nhận biết được năm tuổi và thuộc tính của chúng...  
+  
+Chẳng qua là các tiểu đệ t.ử vẫn chưa thể đạt đến mức thuần thục như vậy, nên mới cần phối hợp với pháp quyết tương ứng để áp chế các loại linh khí khác trong cơ thể.  
+  
+Còn nàng thì chẳng có nỗi lo đó, linh khí hễ vào đến đan điền nàng đều hóa thành màu tím, có thể chuyển đổi bất cứ lúc nào muốn dùng, vốn cũng chẳng cần áp chế gì.  
+  
+Nàng tùy hứng vọc luồng sáng xanh lục, thầm tính toán xem tiếp theo có nên đi nhận nhiệm vụ tông môn hay không?  
+  
+Tuy nói trong vòng một năm đầu, tông môn sẽ lo liệu việc ăn ở và phát phúc lợi, nhưng những đệ t.ử tư chất kém như các nàng nếu chỉ vùi đầu bế quan thì chẳng ích gì, cần phải có thêm chút kỳ ngộ hoặc đan d.ư.ợ.c hỗ trợ mới được.  
+  
+Tiểu đệ t.ử đang luyện khí tầng hai không được nhận nhiệm vụ bên ngoài, nhưng các nhiệm vụ trong tông môn thì vẫn có thể nhận, ví dụ như tới d.ư.ợ.c điền giúp đào d.ư.ợ.c liệu, hoặc ra nhà bếp gánh nước, vân vân.  
+  
+Tần Thù vừa ngẫm nghĩ, vừa thu lại luồng sáng xanh trong tay.  
+  
+Ngay lập tức, nàng trố mắt nhìn chằm chằm vào ngón tay mình.  
+  
+Nàng nhớ hôm hái quả ở phía sau núi, tay nàng vô tình bị rạch một đường, sao giờ đến cả vết sẹo cũng chẳng thấy đâu? Rõ ràng sáng nay lúc rửa mặt vẫn còn thấy vết thương mà?  
+  
+Tần Thù trầm tư hồi lâu, cuối cùng nghĩ tới việc linh khí mộc chính là khí của sinh mệnh.  
+  
+Nàng rất muốn thử thêm lần nữa, nhưng với bàn tay nhỏ nhắn trắng trẻo của mình, nàng thật sự không nỡ xuống tay.  
+  
+Nàng mím môi do dự hồi lâu, đột nhiên nghĩ ra điều gì đó, liền quay đầu nhìn chằm chằm vào tiểu hắc xà đang nằm cuộn thành hình trái tim màu hồng trên giường.  
+  
+Đây chẳng phải là chuột bạch có sẵn đó sao? Việc gì phải tự làm khổ mình chứ?  
+  
+Nàng đứng dậy nhấc tiểu hắc xà qua, gỡ dải lụa quấn trên người nó ra, sau đó giơ tay ngưng tụ một luồng linh khí mộc xanh biếc phủ lên vị trí bảy tấc của nó.  
+  
+Tạ Thích Uyên lại tỉnh giấc, hắn lúc này đã thấy hơi bực bội, bất cứ ai đang bế quan dưỡng thương mà cứ hở ra là bị người ta quấy rầy lại chẳng bực cơ chứ?  
+  
+Đủ chưa vậy hả! Một ngày bắt hắn tỉnh tới ba lần! Giờ hắn chỉ muốn há miệng nuốt chửng tiểu đồng này vào bụng cho xong.  
+  
+Thế nhưng chỉ ngay khắc sau, cơn thịnh nộ của hắn đã bị một luồng linh khí mộc nồng đậm xóa tan.  
+  
+Loài rắn vốn ưa cây cỏ, luồng mộc linh thuần khiết này men theo bảy tấc, chữa lành những tâm mạch đang rạn nứt của nó. Những mạch m.á.u bị tắc nghẽn cũng dần phục hồi, nhịp tim vốn đã tĩnh lặng từ lâu bắt đầu đập trở lại.  
+  
+Tuy nhiên, tu vi của Tần Thù dù sao cũng còn yếu, trị liệu chưa được bao lâu nàng đã thu tay về.  
+  
+Khi cảm giác dễ chịu ấy tan biến, Tạ Thích Uyên theo bản năng lưu luyến áp sát vào đầu ngón tay nàng.  
+  
+Cảm nhận được hơi lạnh từ ngón tay truyền lại, nàng hơi sững người, sau đó lập tức vui mừng khôn xiết!  
+  
+Có vẻ như linh khí mộc này quả thực có tác dụng chữa trị! Con rắn nhỏ của nàng sống lại rồi!
+
+[[Chương 15]]  [[Chương 17]] 

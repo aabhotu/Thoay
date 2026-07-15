@@ -1,0 +1,123 @@
+# Hóa ra là ánh trăng
+
+Trước mặt là nước lạnh được Tần Thù chuẩn bị sẵn, nàng cởi lớp áo bên ngoài ra, ngâm cả người vào bồn.  
+  
+Dù đã để được một lúc nhưng nước vẫn lạnh thấu xương, Tần Thù bước vào đã lạnh đến mức run lẩy bẩy.  
+  
+Nàng nghiến c.h.ặ.t răng, sau khi vận chuyển linh khí hai vòng, cảm giác lạnh buốt trên cơ thể mới dần tiêu tán.  
+  
+Tần Thù xoa nắn khuôn mặt hơi cứng đờ, dùng khăn lau sạch lớp bụi bặm bám trên người, vừa lau vừa thầm cảm thấy may mắn, may mà thân xác này mới mười tuổi, nếu không thì chẳng ngồi vừa cái bồn gỗ này đâu.  
+  
+Đợi sau này tiền nong rủng rỉnh hơn, chắc chắn nàng sẽ sắm một chiếc bồn mới.  
+  
+Tắm rửa sạch sẽ xong, nàng thay lại bộ đồ cũ lúc mới đến, tiện tay giặt luôn bộ “đồng phục” môn phái vừa phát.  
+ 
+Làm xong xuôi, nàng mới nóng long ngồi lên đệm, bắt đầu thăm dò công hiệu của ba viên Tẩy Trần Đan này, xem liệu chúng có thực sự giúp tang tốc độ tu luyện hay không. Tốc độ tu luyện trước đây của nàng đúng là chậm đến mức khiến người khác thấy bực.  
+  
+Tần Thù ngồi khoanh chân, ngưng thần tĩnh khí cảm nhận linh khí xung quanh.  
+  
+Đôi mắt vừa mới nhắm lại chợt mở bừng ra, nàng chớp mắt, vẻ mặt hơi kì lạ.  
+  
+Công hiệu gột tẩy rõ rệt đến thế sao?  
+  
+Linh khí mà nàng cảm nhận được vừa nãy còn nhiều hơn cả lần đầu tiên tu luyện, những đốm sáng linh khí dày đặc như chỉ cần tùy tiện hít vào một hơi cũng bằng cả ngày tu luyện trước đây.  
+  
+Không đúng, chắc chắn không chỉ do mỗi Tẩy Trần Đan được, tông môn không thể nào hào phóng đến như vậy.  
+  
+Mấy ngày nay nàng vẫn luôn tu luyện trong phòng, rốt cuộc khác biệt ở đâu?  
+  
+Nàng suy đi nghĩ lại, chợt tầm mắt nàng rơi xuống vệt nguyệt quang đang rọi trên cánh tay mình, Tần Thu sững người, bỗng ngộ ra.  
+  
+Chẳng lẽ… là do ánh trăng sao?  
+  
+Để kiểm chứng suy đoán của mình, nàng cầm đệm lên, mở cửa bước ra giữa viện.  
+  
+Nàng ngồi khoanh chân dưới ánh trăng, lần nữa nhập định, linh khí xung quanh cơ thể quả nhiên càng dày hơn, thậm chí đến mức đặc dính lại.  
+  
+Trong phòng, Tạ Thích Uyên vốn đang chìm trong giấc ngủ sâu bỗng nhiên mở mắt, lần này không phải dùng thần thức, mà thực sự là mở mắt ra nhìn.  
+  
+Hắn nhìn độ đậm đặc của linh khí bên ngoài, lại dùng thần thức dò xét tình hình xung quanh.  
+  
+Điều khiến hắn kinh ngạc là, động tĩnh này lại do tiểu nha đầu bên ngoài kia gây ra?  
+  
+Một tiểu nha đầu mang tam linh căn lại có thể làm linh khí bạo động? Nàng ta rốt cuộc là loại tiên thiên linh thể gì?  
+  
+Tạ Thích Uyên không kịp suy nghĩ nhiều, lập tức phun ra nội đan, dùng tia sức lực cuối cùng thi triển một đạo pháp quyết, che đậy mọi dị thường ở nơi này.  
+  
+Bố trí xong xuôi, Tạ Thích Uyên lại một lần nữa rơi vào hôn mê, chút linh khí ít ỏi vừa mới khôi phục cũng vì vậy mà tiêu hao sạch.  
+  
+Trong khoảnh khắc trước khi ngất đi, hắn vẫn thầm nghĩ, hy vọng tiểu nha đầu này đừng gây thêm chuyện gì khác nữa, nếu thu hút đám lão già của Huyền Thiên Tông tới đây, cả hai sẽ tiêu đời mất…  
+  
+Tuy nhiên, Tần Thù hoàn toàn không biết gì về những chuyện này, dù nàng có hút bao nhiêu linh khí đi chăng nữa, nhưng với kẻ mới bắt đầu tu luyện như nàng, thứ hấp thụ được cũng chỉ là muối bỏ bể mà thôi.  
+  
+Nàng cảm nhận được từng lỗ chân lông, từng tế bào của mình đều tràn ngập linh khí, chúng men theo kinh mạch hội tụ về đan điền.  
+  
+Kinh mạch sau khi được Tẩy Trần Đan thanh lọc giống như con đường mòn thôn quê cũ kỹ được lột xác thành đại lộ thênh thang, linh khí vận chuyển trơn tru hơn hẳn.  
+  
+Lần này, sau khi ba loại linh khí mang màu sắc khác nhau tiến vào đan điền đều không còn phân chia rõ rệt như trước, mà tự động dung hợp thành màu tím.  
+  
+Thế nhưng linh khí sau khi vận hành đủ một vòng tuần hoàn hoàn chỉnh thì vẫn bị hao hụt đi như cũ.  
+  
+Tần Thù không hiểu tại sao mình lại bị “rò rỉ khí”, nhưng dựa trên tốc độ tu luyện hiện tại thì nàng cũng chỉ có thể nói rằng…  
+  
+Rò thì cứ rò đi! Chỉ cần phần còn lại vẫn đủ thì rò rỉ một chút có đáng là bao?  
+  
+Sau khi vận hành vài vòng tuần hoàn hoàn chỉnh, linh khí trong đan điền của Tần Thù đã ngưng tụ thành màu tím đậm.  
+  
+Nàng chợt nảy ra ý nghĩ kì lạ, nếu dùng linh khí này để tôi luyện kinh mạch thì liệu tốc độ tu luyện sau này có nhanh hơn không?  
+  
+Nghĩ là làm, nàng điều khiển linh khí trong đan điền từ từ bám lên nhâm mạch, nhâm mạch chạy dọc tuyến giữa mặt bụng, quản lý tất cả các kinh âm trong cơ thể, cũng là một trong những kỳ kinh bát mạch gần đan điền nhất.  
+  
+Luồng linh khí từng bước thăm dò và gột rửa kinh mạch, thấy không có gì bất thường xảy ra, Tần Thù mới thở phào nhẹ nhõm, yên tâm mạnh dạn bắt đầu tôi luyện kinh mạch.  
+  
+Chính nàng cũng không hề hay biết rằng, nàng, sự vô tình này lại giúp nàng chọn được một con đường tu luyện cực kỳ chính xác  
+  
+Kinh mạch cường tráng không chỉ giúp chiếm ưu thế khi đối địch, mà ngay cả lúc đột phá đại cảnh giới cũng dễ dàng hơn người thường rất nhiều.  
+  
+Tần Thù tu luyện suốt một đêm, mãi đến khi linh khí quanh cơ thể dần thưa đi, nàng mới từ từ mở mắt ra.  
+  
+Lúc này, nhâm mạch của nàng sau một đêm tôi luyện đang tỏa ra một lớp ánh sáng tím nhạt đầy thanh nhã.  
+  
+Nàng đã quyết định rồi! Phải đợi đến khi tôi luyện hết toàn bộ nhâm mạch mới bắt đầu đột phá!  
+  
+Với tốc độ tôi luyện này, nếu thời tiết thuận lợi, ước chừng chỉ trong vòng một hai tháng nữa nàng sẽ đả thông được nhâm mạch đạt tới cảnh giới luyện khí tầng thứ hai.  
+  
+Tần Thù phủi đi lớp sương đọng trên người, ngắm nhìn cảnh tượng nhật nguyệt cùng tỏa sáng trên bầu trời, lòng nàng càng thêm kiên định.  
+  
+Trong lúc xuyên không, không biết đã xảy ra sai sót gì khiến nàng không còn giống với cơ thể nguyên tác nữa, dù nàng không phải thiên tài một ngày đi nghìn dặm, nhưng tám năm sau chắc chắn sẽ không chỉ dừng lại ở bước luyện khí tầng ba.  
+  
+Tần Thù đứng dậy vươn đôi vai mỏi nhừ, tâm trạng vô cùng khoan khoái.  
+  
+Kể từ khi nhập tông đến nay, vấn đề lớn nhất luôn bủa vây nàng đã được giải quyết, tiếp theo chỉ cần chuyên tâm tu luyện là được!  
+  
+Nàng không chỉ muốn sống sót, mà nàng còn muốn phi thăng!  
+  
+Vì hiệu suất tọa thiền vào ban ngày quá thấp nên Tần Thù dứt khoát từ bỏ, nàng bẻ cành cây làm kiếm, bắt đầu luyện tập bộ kiếm pháp cơ bản học được ở cấm địa hôm trước.  
+  
+Luyện mãi cho đến khi mặt trời lên cao, nàng mới đi tắm rửa sạch sẽ, ăn nốt màn thầu còn thừa hôm qua, thay t.h.u.ố.c cho tiểu hắc xà và cho nó ăn nửa trái linh quả.  
+  
+Không biết có phải ảo giác hay không, nàng chỉ thấy trạng thái của tiểu hắc xà hôm nay dường như tệ hơn, những tia hàn quang trên vảy của nó đã biến mất, trông có vẻ tàn tạ.  
+  
+Tần Thù cũng hết cách, mình đã chăm sóc con rắn nhỏ này lâu như vậy rồi, không thể giương mắt nhìn nó c.h.ế.t đi được. Chỉ đành đợi bốn ngày nữa tới chợ phiên xem có loại t.h.u.ố.c nào chữa trị cho linh thú hay không, hy vọng nó có thể gắng gượng đến hôm đó.  
+  
+Hôm nay đã là ngày thứ tư Tần Thù nhập môn, theo tính toán thì trong đám đệ t.ử ngoại môn chắc hẳn đã có người dẫn khí nhập thể thành công, Tần Thù cũng quyết định phải đến Truyền Công Đường thật một chuyến.  
+  
+Nếu không thì dù có hấp thụ bao nhiêu linh khí mà không biết một chút thuật pháp nào thì cũng chẳng để làm gì.  
+  
+Khi nàng tới Truyền Công Đường, quả nhiên đã có người ở đó.  
+  
+Đó là một thiếu niên cao gầy, tầm mười bốn, mười lăm tuổi.  
+  
+Người kia thấy nàng bước vào liền nhìn bằng ánh mắt cảnh giác.  
+  
+Tần Thù coi như không thấy, bước tới hành lễ với Thư Huỳnh sư tỷ đang dạy học: "Sư tỷ."  
+  
+Thư Huỳnh vẫn còn ấn tượng với cô bé xinh xắn này, mỉm cười hỏi: "Muội cũng dẫn khí nhập thể rồi sao?"  
+  
+"Vâng, muội vừa dẫn khí nhập thể tối qua, nay muốn đến Truyền Công Đường học vài thuật pháp đơn giản."  
+  
+Thư Huỳnh bảo nàng đặt tay lên Thử Linh Thạch, Tần Thù muốn giấu nghề nên chỉ dẫn ra một tia linh khí nhỏ bám vào đó, Thử Linh Thạch tỏa ra một luồng huỳnh quang yếu ớt.  
+  
+Thư Huỳnh cười nói: "Tốt lắm, đã dẫn khí nhập thể thành công. Ta thấy sư muội có Hỏa linh căn, hay là học Hỏa Cầu Thuật trước nhé?”
+
+[[Chương 14]]  [[Chương 16]] 

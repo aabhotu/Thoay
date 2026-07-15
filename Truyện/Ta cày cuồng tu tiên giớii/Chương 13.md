@@ -1,0 +1,105 @@
+# Dần nhận ra bản thân là một phế vật
+
+Tần Thù ngoan ngoãn vâng lời. Nàng vốn đã biết đám linh quả này là vật có chủ, nên dù có cho nàng thêm mười cái lá gan nàng cũng chẳng dám hái trộm.  
+  
+Đến khi ngẩng đầu lên, Ôn Trì vừa đứng trước mặt nàng đã biến mất không một dấu vết.  
+  
+Tần Thù nhìn thung lũng không một bóng người, từ tận đáy lòng cảm thán không thôi: cái bản lĩnh đi không để lại dấu, đến không để lại hình này, biết đến bao giờ nàng mới học được đây? Ngày nào cũng đi bộ bằng hai chân, quả thực là mệt c.h.ế.t người mà.  
+  
+Nàng vừa cất bước được hai bước, chợt nhìn xuống năm quả linh quả đang ôm trong lòng, nảy ra một ý tưởng.  
+  
+Hết thảy năng lực trong giới tu tiên đều dựa trên linh khí. Nàng thử điều động linh khí tập trung vào đôi chân rồi mới bước tiếp, quả nhiên cảm thấy nhẹ nhàng hơn rất nhiều.  
+  
+Nàng mừng rỡ ra mặt, sải bước chạy xuống núi.  
+  
+Bình thường đi một chuyến như vậy mất nửa canh giờ, mà hiện tại nàng chỉ tốn có hai khắc đã về tới nơi.  
+  
+Nàng đang hưng phấn trải nghiệm kỹ năng mới học được, nhưng ngay khoảnh khắc sau, nàng bàng hoàng nhận ra mấy "hạt lạc" linh khí cực khổ luyện được cả buổi chiều nay, giờ chỉ còn lại vỏn vẹn hai hạt.  
+  
+Tần Thù khiếp sợ đến mức suýt chút nữa là phát hỏa tại chỗ. Theo tốc độ tiêu hao này và tốc độ khôi phục linh khí của nàng, sau này làm sao mà đấu pháp với người ta?! Ngay cả việc chạy giữ mạng cũng trở thành vấn đề nan giải rồi!  
+  
+Nàng cũng không rõ chỉ có mình nàng như vậy, hay là tất cả mọi người tu luyện đều chậm chạp thế này.  
+  
+Tần Thù có chút hối hận, sớm biết vậy lúc nãy gặp Ôn Trì đã thỉnh giáo hắn một câu. Dẫu trong nguyên tác nói tính cách Ôn Trì không mấy tốt đẹp, nhưng thà bị hắn giáo huấn một trận còn hơn là chịu cảnh mù mờ như hiện tại.  
+  
+Trời hôm nay âm u, gió ngoài cửa thổi vù vù làm khung cửa rung lên bần bật. Vầng trăng khuyết đáng lẽ phải treo trên chân trời nay cũng ẩn sau màn mây đen, trong ngoài căn phòng đều là một mảnh tối đen như mực.  
+  
+Tần Thù đứng dậy đóng c.h.ặ.t cửa sổ, lúc này mới thắp một ngọn đèn lên. Ngọn đèn này nàng cũng không rõ nguyên lý ra sao, bên trong không có dầu, chỉ vẽ một đồ án rất phức tạp trên thân đèn.  
+  
+Tần Thù hiện tại đã dần thích nghi với tu chân giới, chuyện gì tồn tại thì ắt có lý lẽ của nó, nếu cảm thấy không hợp lý thì chỉ vì nàng chưa đủ kiến thức mà thôi.  
+  
+Nàng ăn một quả linh quả mà Ôn Trì cưỡng ép đưa cho, mớm cho con rắn nhỏ nửa quả, sau đó tháo dải lụa hồng trên người nó ra để thay t.h.u.ố.c. Vừa mới tháo lụa ra, một mùi xú uế khó diễn tả bằng lời đã xộc thẳng vào mũi.  
+  
+Tần Thù nhăn mũi, trong lòng bắt đầu trỗi dậy một dự cảm chẳng lành. Con rắn này... không lẽ c.h.ế.t rồi chứ?  
+  
+Nàng vừa nghĩ thầm, vừa nhẹ nhàng rửa sạch lớp t.h.u.ố.c bột cũ trên thân rắn. Vết thương đáng sợ kia lại lộ ra, thậm chí còn rụng mất hai chiếc vảy đen. Cũng may con rắn đen nhỏ kia kịp thời vặn vẹo thân mình trong lòng bàn tay Tần Thù hai cái, bằng không nàng thật sự sẽ mặc định là nó đã c.h.ế.t rồi.  
+  
+Nàng lại tìm ra Kim Sang Dược, rắc xuống như không cần tiền, sau đó tìm một dải lụa sạch sẽ bao bọc con rắn lại, đặt lên giường. Ngón tay thanh mảnh điểm nhẹ lên đầu rắn, nàng khẽ nói với nó: "Vẫn là ngươi mệnh tốt, nghỉ ngơi cho khỏe đi, ngủ ngon."  
+  
+Dù sao tám năm tới nàng cũng chỉ có thể sống qua ngày bằng cách ngồi thiền, giường cũng chẳng dùng đến, thôi thì nhường cho nó ngủ vậy.  
+  
+Thế nhưng, mỗi một lần nàng chạm vào Tạ Thích Uyên, hắn đều có tri giác. Loài rắn vốn là động vật biến ôn, toàn thân lạnh lẽo, một ngón tay ấm áp kia điểm lên mi tâm hắn, tựa như có một bàn tay mềm mại gảy nhẹ vào thức hải, khuấy động lên từng vòng gợn sóng.  
+  
+Tạ Thích Uyên dĩ nhiên là bị đ.á.n.h thức. Nhận ra kẻ đang làm loạn trên người mình lại là cô bé nhân loại này, hắn không hài lòng mà chun mũi một cái.  
+  
+Nhưng thấy nàng cũng chẳng có ác ý, Tạ Thích Uyên đành nhắm mắt làm ngơ.  
+  
+Linh quả nàng cho ăn vị cũng rất ngon, tuy linh khí chứa đựng trong đó ít đến t.h.ả.m thương, nhưng có thể kiếm được Kim Hồng Lựu đối với nàng chắc cũng không dễ dàng gì.  
+  
+Cũng may nhờ có Kim Hồng Lựu này, tuy linh khí không nhiều nhưng lại có khả năng tịnh hóa.  
+  
+Lão tặc Vạn Độc Tông kia đã hạ độc hắn, khiến vết thương trì trệ không thể khép miệng. Nếu phần thịt thối rữa không được xử lý, thương thế của hắn chỉ càng thêm trầm trọng qua thời gian.  
+  
+Cô nhóc này cho hắn ăn Kim Hồng Lựu cũng xem như ch.ó ngáp phải ruồi, có điều nàng mớm quá ít, chỉ đủ để giảm nhẹ triệu chứng chứ chẳng thể giúp hắn giải sạch độc tố.  
+  
+Nhưng như vậy cũng chẳng sao, nhục thân hắn cường hãn, chỉ cần có thời gian, hắn tự khắc có thể khôi phục.  
+  
+Hắn biết rõ mình đang nằm trên giường của tiểu hài kia. Trước khi chìm vào giấc ngủ sâu, trong đầu hắn vẫn còn quẩn quanh một suy nghĩ: Nhân loại vốn dĩ không biết giữ kẽ như vậy sao? Tùy tiện một kẻ giống đực nào cũng có thể ngủ trên giường của nàng?  
+  
+Tần Thù vốn chẳng hay biết gì về những ý nghĩ trong đầu Tạ Thích Uyên, bằng không nàng nhất định sẽ treo hắn lên hàng rào ngoài kia, cho gió thổi đến khi thành một sợi dây thừng rắn khô mới thôi!  
+  
+Đêm đã khuya, hai tay Tần Thù kết ấn, không ngừng lặp đi lặp lại một động tác.  
+  
+Động tác này ngày càng thuần thục, nàng dần tiến vào một trạng thái huyền mà càng huyền, đôi bàn tay nhanh đến mức gần như để lại tàn ảnh, hạt lạc màu tím trong đan điền cũng rục rịch chuyển động.  
+  
+Tần Thù tuân theo ý thức dẫn ra một tia linh khí, thủ ấn trong tay tức thì rực sáng. Ngay khoảnh khắc chuẩn bị phóng thích, nàng đột ngột thu hồi thế tay.  
+  
+Căn phòng lại trở về vẻ tĩnh lặng vốn có, chỉ còn lại ánh nến le lói đang khẽ đung đưa.  
+  
+Tần Thù nghĩ về dự cảm vừa rồi, giống như đột nhiên xuất hiện trong đầu nàng, nhưng nàng biết chắc chắn một điều:  
+  
+Đây là một chiêu thức công kích. Nếu vừa rồi nàng đ.á.n.h ra, phỏng chừng căn nhà gỗ nhỏ này sẽ bị thủng một lỗ lớn.  
+  
+Mới nhập môn đêm thứ hai đã gây ra động tĩnh thế này, nếu tông môn bắt đền, nàng có bán mình cũng không đền nổi.  
+  
+Nàng thở dài, dẹp bỏ ý định luyện tập kết ấn, một lần nữa khoanh chân nhập định.  
+  
+Ngày hôm sau, khi trời đã sáng rõ, Tần Thù mới mở mắt. Nàng thở ra một ngụm trọc khí, linh khí trong đan điền đã khôi phục được bảy tám phần. Kiểu tu luyện tốc độ rùa bò này thực sự khiến nàng phiền lòng.  
+  
+Nàng đứng dậy rửa mặt, lấy nửa quả Kim Hồng Lựu trên bàn mớm cho con rắn đen nhỏ, bản thân ăn nửa quả còn lại. Vừa định ra cửa, bên ngoài đã vang lên một tiếng gọi: "Tần Thù!"  
+  
+Tần Thù đẩy cửa sổ nhìn ra ngoài, thấy người đang gọi tên mình chính là Hòa Hinh. Nàng mở cửa, cấm chế của căn nhà cũng theo đó mà giải trừ. Hòa Hinh nhìn thiếu nữ và căn nhà gỗ đột ngột hiện ra trước mắt thì ngẩn người, sau khi hoàn hồn liền điên cuồng vẫy tay với nàng.  
+  
+Tần Thù đóng cửa bước ra ngoài. Khi đi qua mảnh vườn nhỏ trước cửa, nàng không hề chú ý rằng hai chiếc vảy nhỏ rụng ra lúc trước nay đã biến thành kích cỡ bằng bàn tay, trên mặt phủ một lớp bụi mỏng.  
+  
+"Cuối cùng cũng tìm thấy ngươi, ta cứ ngỡ là đi nhầm chỗ rồi cơ."  
+  
+Hòa Hinh vừa đi tới trước mặt Tần Thù đã không nhịn được mà chia sẻ: "Ta nghe người ta nói, nhà gỗ của chúng ta đều bị thi triển thuật che mắt để đệ t.ử mới thuận tiện chọn chỗ ở, chờ đến khi tu vi đạt tới Luyện Khí tầng một mới có thể nhìn thấu. Có điều cấm chế trên phòng có thể ngăn cản thần thức của kẻ dưới Nguyên Anh dò xét, thật sự rất tiện lợi."  
+  
+Tần Thù tỉnh ngộ, xem ra sau này nếu muốn che giấu nơi ở của mình, nàng phải dùng tới những trận pháp cao cấp hơn mới được.  
+  
+"Ngươi tìm mình có việc gì sao?" Tần Thù hỏi.  
+  
+"Nghe nói năm ngày sau, tại Xích Kim Thành có hội chợ, nơi đó có thể đổi được rất nhiều món đồ tốt phù hợp với đệ t.ử mới nhập môn như chúng ta, ngươi có muốn đi cùng không?" Hòa Hinh hỏi.  
+  
+Tần Thù nghe vậy quả thực nảy sinh hứng thú. Tu luyện mà cứ đóng cửa tự làm thì không ổn, nàng cần phải ra ngoài mở mang tầm mắt.  
+  
+Nhưng...  
+  
+"Nhưng chúng ta vừa mới nhập tông, hai bàn tay trắng, lấy đâu ra đồ tốt mà đi đổi với người ta?"  
+  
+Hòa Hinh nhìn vẻ mặt cau có của nàng, không nhịn được che miệng cười khẽ: "Ngươi quên rồi sao? Hôm nay là ngày thứ ba nhập tông, có thể đi nhận phúc lợi dành cho tân đệ t.ử rồi!"  
+  
+Tần Thù mím môi, hít một hơi thật sâu, đôi mắt mở to kinh ngạc. Khá khen thật! Chuyện quan trọng thế này mà nàng lại quên khuấy đi mất!
+
+[[Chương 12]]  [[Chương 14]] 

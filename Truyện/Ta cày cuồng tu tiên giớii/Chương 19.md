@@ -1,0 +1,137 @@
+# Ta lạ không muốn nữa
+
+Truyền tấn ngọc giản là thứ tốt như vậy, Tần Thù đương nhiên là muốn. Nhưng trước mắt đối với nàng mà nói, Tích Cốc Đan vẫn là thứ khẩn yếu hơn.  
+  
+Nếu có Tích Cốc Đan, nàng sẽ không phải lãng phí thời gian vào việc ăn uống mỗi ngày, cũng có thể sớm đạt tới Luyện Khí tầng hai để ra ngoài tông môn nhận nhiệm vụ.  
+  
+Hòa Hinh nhìn nhìn miếng ngọc giản to bằng bàn tay trong tay mình, cuối cùng vẫn thu lại.  
+  
+Bọn nàng bây giờ tuổi còn nhỏ, tu luyện có thể từ từ từng bước một, nhưng hóng hớt tin tức ấy à! Nếu để qua đi là không nghe lại được đâu!  
+  
+Hơn nữa, lúc nàng rời nhà, cha nàng có đưa cho một túi linh thạch nhỏ, chừng bảy tám viên gì đó, cũng không biết lão nhân gia ông lấy từ đâu ra.  
+  
+Lát nữa nếu thật sự thấy có Tích Cốc Đan phù hợp, nàng cũng sẽ cân nhắc mua một ít.  
+
+Hai người từ trong cửa tiệm đi ra, liền thấy bên đường bày hai dãy sạp hàng nhỏ, có vài người thậm chí còn mặc y phục của tông môn bọn nàng.  
+  
+Hòa Hinh và Tần Thù vốn chưa từng thấy qua sự đời, dọc đường tò mò nhìn ngắm đủ thứ: chim gỗ biết bay, bình hoa biết nói, tiên kiếm, công pháp, kiếm phổ, đan d.ư.ợ.c...  
+  
+Cái gì cũng có.  
+  
+Cuối cùng Tần Thù dừng chân trước một sạp nhỏ bán đan d.ư.ợ.c. Sạp không lớn, bên trên bày vài bình sứ và một tấm biển.  
+  
+Trên biển viết: Tự sản tự tiêu, giá cả thực tế.  
+  
+"Có Tích Cốc Đan không?" Tần Thù trực tiếp hỏi.  
+  
+Vị đệ t.ử bày sạp này mặc y phục của Huyền Thiên Môn, nghe tiếng hỏi liền ngẩng đầu lên, thấy trước mặt là hai cô bé nhỏ nhắn.  
+  
+"Có có chứ, năm viên linh thạch hạ phẩm một bình, một bình mười viên, một viên quản được ba ngày."  
+  
+Tích Cốc Đan cao giai chỉ một viên là có thể nhịn đói cả tháng, nhưng ai bảo hắn bản lĩnh kém cỏi, chỉ có thể luyện ra loại đan d.ư.ợ.c hạ phẩm này cơ chứ?  
+  
+Tần Thù thầm nghĩ năm viên linh thạch hạ phẩm có thể quản được một tháng, quả thực cũng không tính là đắt, liền nói tiếp: "Ta có thể xem thử không?"  
+  
+Vị sư huynh chủ sạp móc ra một bình sứ đưa cho nàng: "Cứ tự nhiên, những đan d.ư.ợ.c này đều do ta tự luyện chế, tuyệt đối không có vấn đề gì đâu."  
+  
+Tần Thù nhận lấy, mở nút chai rồi đưa lên đầu mũi khẽ ngửi.  
+  
+Nàng đột nhiên ngẩn ra, mùi vị này? Sao có vẻ quen thuộc thế nhỉ?  
+  
+Nàng chợt nghĩ đến điều gì đó, khóe môi không kìm được mà nhếch lên, đóng nút chai lại rồi trả về chỗ cũ.  
+  
+"Đa tạ sư huynh."  
+  
+Thấy nàng quay người định đi, Hòa Hinh và vị đệ t.ử kia đều sững sờ, Hòa Hinh trực tiếp hỏi luôn: "Sao vậy? Sao ngươi lại không muốn mua nữa?"  
+  
+"Tạm thời lại thấy không cần thiết lắm, hay là đi mua Truyền tấn ngọc giản đi."  
+  
+Hòa Hinh nhất thời cạn lời: "Thôi được rồi, vậy để ta mua một bình."  
+  
+Không phải là muốn cuốn sao? Nàng cũng biết làm nhé.  
+  
+Lúc móc linh thạch, nàng theo thói quen hỏi một câu: "Có thể rẻ chút không? Chúng ta cũng là đệ t.ử Đan tông, chỉ là vẫn chưa biết luyện đan thôi."  
+  
+Vị sư huynh kia nghe xong cũng ngẩn ra, ngay sau đó lại cười lên: "Cũng được, vậy tính cho muội bốn viên linh thạch đi."  
+  
+Hòa Hinh vui vẻ trả linh thạch, nhận lấy bình sứ, còn dùng ngọc giản mới mua lưu lại linh tức của vị sư huynh này để lần sau tiện mua tiếp.  
+  
+Nàng định chia cho Tần Thù vài viên nhưng bị Tần Thù từ chối: "Không cần đâu, ta tạm thời chưa cần thứ này."  
+  
+Hòa Hinh không hiểu nổi nàng đang nghĩ gì, sao cứ chốc chốc lại thay đổi ý định như vậy.  
+  
+Lúc nàng trả linh thạch, Tần Thù vừa quay người lại thấy ở sạp bên cạnh có một thanh thiết kiếm xám xịt.  
+  
+Hoa văn trên thanh thiết kiếm đó mang lại cho nàng một cảm giác quen thuộc khó tả.  
+  
+Lại nghĩ đến việc mình đang học Cơ bản kiếm pháp mà chưa có binh khí nào vừa tay, nàng dứt khoát mở miệng hỏi luôn: "Thanh kiếm này bao nhiêu linh thạch?"  
+  
+Chủ sạp là một người đàn ông trung niên, thấy là một tiểu cô nương nên có vẻ không mấy hứng thú, tùy tiện nói: "Đây là bảo bối ta đào được ở Linh cảnh tiểu thế giới, dưới ba mươi viên linh thạch hạ phẩm là không bán đâu."  
+  
+Tần Thù nhíu mày, đây không phải thứ mà nàng có thể gánh vác nổi.  
+  
+Nàng vừa định quay người rời đi, đột nhiên trong đầu vang lên một giọng nam thanh lãnh: "Mua nó đi."  
+  
+Tần Thù: "..."  
+  
+Tưởng nàng không muốn chắc? Thứ nàng muốn nhiều lắm! Nhưng lấy gì mà mua? Lấy tám viên linh thạch của nàng sao? Mua xong nàng đến tiền ngồi truyền tống trận đi về cũng chẳng còn.  
+  
+Tần Thù ôm tâm thái liều mạng, cầm thanh kiếm bày trên sạp lên, truyền một chút linh khí vào trong. Nhưng chút linh khí đó vừa vào đến thân kiếm đã như đá chìm đáy bể, chẳng có chút phản ứng nào.  
+  
+Nàng ngẩng đầu nhìn chủ sạp, mở lời: "Sáu viên linh thạch hạ phẩm, bán không?"  
+  
+Chủ sạp nghe vậy chẳng thèm đoái hoài gì đến nàng, Tần Thù lại nghiến răng, hạ quyết tâm tăng giá: "Tám viên!"  
+  
+Chủ sạp lườm nàng một cái: "Tiểu cô nương nhà muội đừng có quấy rối, chỗ nào mát mẻ thì sang đó mà chơi!"  
+  
+Nếu ông ta không nói lời này, có lẽ Tần Thù đã đi rồi, nhưng ông ta bảo nàng đừng quấy rối, vậy thì Tần Thù phải nói lý lẽ với ông ta một phen cho ra trò mới được.  
+  
+"Thúc thúc, thanh thiết kiếm này của thúc chỉ là phàm thiết, người tu tiên ai lại dùng phàm thiết làm v.ũ k.h.í chứ? Truyền linh khí vào cũng chẳng có phản ứng gì, theo ta thấy, tám viên linh thạch hạ phẩm cũng có chút đắt rồi. Nếu thúc thật sự không bằng lòng, ta vẫn còn chút vàng bạc, đưa cho thúc cũng được."  
+  
+Chủ sạp nghe nàng nói vậy liền đáp: "Đồ đào được từ Linh cảnh tiểu thế giới sao có thể là phàm thiết? Đứa nhỏ này không hiểu thì đừng có nói bừa!"  
+  
+"Nhưng nó thật sự không có linh khí mà, một đứa trẻ như ta còn cảm nhận được, chắc hẳn thúc cũng cảm nhận được chứ? Thúc thử nghĩ xem, nếu để thúc bỏ ra ba mươi viên linh thạch mua một khối phàm thiết, thúc có bằng lòng không?" Tần Thù ra sức tranh luận.  
+  
+Chủ sạp nghe lời này của nàng, quả thực cũng rơi vào trầm tư. Ông ta nghĩ hồi lâu, ngẩng đầu nhìn Tần Thù hỏi: "Đã cho rằng nó là phàm thiết, vậy muội còn mua nó làm gì?"  
+  
+Tần Thù nhún vai: "Ta luyện kiếm thuật, mãi mà không mua được binh khí vừa tay, cái kích cỡ này nhìn qua có vẻ khá hợp. Nhưng ta cũng chỉ có tám viên linh thạch thôi, nếu thúc không bán cho ta, vậy ta cũng không cần nữa."  
+  
+Chủ sạp suy nghĩ hồi lâu, cuối cùng vẫn phải thỏa hiệp: "Được rồi, tám viên linh thạch thì tám viên linh thạch, coi như hời cho muội đấy."  
+  
+Tần Thù bỏ thanh kiếm vào trong túi càn khôn của mình, lại móc ra tám viên linh thạch đưa cho chủ sạp.  
+  
+Hòa Hinh thực sự không hiểu nổi nữa rồi: "Ngươi mua kiếm làm gì? Ngươi quên rồi sao? Ngươi là Đan tu! Hơn nữa, dù có mua kiếm cũng phải mua thanh nào tốt một chút, thanh kiếm này đến linh khí cũng không có, ngươi thà mua hai bình Tích Cốc Đan còn hơn!"  
+  
+Tần Thù mỉm cười: "Ta có học qua Cơ bản kiếm pháp, luyện một chút sau này ra ngoài cũng có phương pháp hộ thân."  
+  
+Hòa Hinh thấy nàng thần sắc thản nhiên, trong lòng vẫn thấy rất kỳ lạ, Đan sư còn cần phương pháp hộ thân gì chứ? Chỉ cần trở thành bậc thầy luyện đan, hoàn toàn có thể nuôi thị tùng, đến lúc đó người bảo vệ bọn nàng thiếu gì, việc gì phải tự mình khổ sở đi liều mạng với người ta?  
+  
+Nhưng thấy Tần Thù vẻ mặt hớn hở, lời định nói đến cửa miệng nàng lại nuốt xuống.  
+  
+Lần này Tần Thù hoàn toàn sạch túi linh thạch, đến tiền mua ngọc giản cũng không còn.  
+  
+Nàng nhìn Hòa Hinh cười gượng: "Hảo tỷ muội, có thể cho ta mượn hai viên linh thạch không? Để ta ngồi truyền tống trận? Tháng sau sẽ trả lại ngươi."  
+  
+Hòa Hinh bất lực thở dài: "Thôi được rồi, ta cho ngươi mượn thêm hai viên nữa, ngươi cũng mua một cái ngọc giản đi, liên lạc với nhau cũng thuận tiện hơn."  
+  
+Tần Thù chắp tay tạ ơn: "Đại ân không lời nào diễn tả hết được, ta đều ghi nhớ cả rồi!"  
+  
+Hai người quay lại cửa tiệm mặc cả lúc đầu mua thêm một cái ngọc giản màu trắng, Tần Thù khăng khăng cho rằng ngọc giản màu hồng giá hai viên linh thạch hạ phẩm, vậy thì màu trắng phải rẻ hơn mới đúng.  
+  
+Gã tiểu nhị thật sự hết cách với nàng, liền tặng thêm cho nàng một món đồ nhỏ.  
+  
+Đó là một chiếc trâm cài tóc bằng thanh ngọc nhỏ nhắn, đeo lên có công dụng giúp tỉnh táo tinh thần.  
+  
+Tần Thù lúc này mới hài lòng, vừa khéo dùng để b.úi tóc củ tỏi của nàng.  
+  
+Nợ một khoản tiền ngoài bốn viên linh thạch, Tần Thù cũng chẳng còn tâm trạng dạo chơi tiếp, liền cùng nhau quay về tông môn.  
+  
+Hai người hẹn ước có việc gì cứ trực tiếp gửi tin nhắn, sau đó ai về chỗ nấy.  
+  
+Đóng cửa phòng lại, việc đầu tiên Tần Thù làm chính là lấy bình đan d.ư.ợ.c để trong túi càn khôn từ lúc mới vào tông môn ra.  
+  
+Nàng đổ ra một viên, hương thơm thanh khiết của đan d.ư.ợ.c tỏa ra bốn phía, nhanh ch.óng tràn ngập khắp căn phòng, nàng hít sâu một hơi, chỉ cảm thấy tinh thần sảng khoái hẳn lên.  
+  
+Viên đan d.ư.ợ.c này, chẳng phải chính là Tích Cốc Đan sao?!
+
+[[Chương 18]] [[Chương 20]] 
