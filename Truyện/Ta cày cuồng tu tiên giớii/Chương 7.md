@@ -56,4 +56,4 @@ Chẳng lẽ nói… thân thể này của nàng thật sự bị rò khí?
   
 …
 
-[[Chương 6]]  [[Chương 8]]
+[[Chương 0006]]  [[Chương 8]]
